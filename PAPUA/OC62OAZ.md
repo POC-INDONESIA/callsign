@@ -1,5 +1,4 @@
 # OC62OAZ
 ![Foto](https://portal.inadi.or.id//data/foto/e/d/d/edd88699ffb5f81fd4c03ac939b4370c.jpg)    
 Nama: Eka riano moningka    
-Channel: PAPUA    
 Domisili: PAPUA, KAB. JAYAPURA    

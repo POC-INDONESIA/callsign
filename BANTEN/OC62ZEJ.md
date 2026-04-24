@@ -1,4 +1,3 @@
 # OC62ZEJ
 Nama: NIMUS PONDETE    
-Channel: BANTEN    
 Domisili: BANTEN, KAB. TANGERANG    

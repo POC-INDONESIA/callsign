@@ -1,5 +1,4 @@
 # OC62SEF
 ![Foto](https://portal.inadi.or.id//data/foto/9/0/e/90e70d91def3e82379107001aa73b4eb.jpg)    
 Nama: Shan Aufar    
-Channel: JAWA BARAT    
 Domisili: BANTEN, KOTA TANGERANG    

@@ -1,4 +1,3 @@
 # OC62ABI
 Nama: SYAIFUDDIN JUHRI    
-Channel: JAWA TIMUR    
 Domisili: JAWA TIMUR, KAB. MOJOKERTO    

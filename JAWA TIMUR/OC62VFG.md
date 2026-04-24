@@ -1,5 +1,4 @@
 # OC62VFG
 ![Foto](https://portal.inadi.or.id//data/foto/7/4/0/740ad58655f4229b90292d3ec4c291ba.jpg)    
 Nama: Tanwirul h    
-Channel: JAWA TIMUR    
 Domisili: JAWA TIMUR, KAB. MADIUN    

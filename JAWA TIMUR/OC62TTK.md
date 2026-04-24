@@ -1,4 +1,3 @@
 # OC62TTK
 Nama: TOTOK KRISTIAWAN    
-Channel: JAWA TIMUR    
 Domisili: JAWA TIMUR, KAB. TULUNGAGUNG    

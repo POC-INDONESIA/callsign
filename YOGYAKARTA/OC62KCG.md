@@ -1,4 +1,3 @@
 # OC62KCG
 Nama: Wiratno    
-Channel: YOGYAKARTA    
 Domisili: DAERAH ISTIMEWA YOGYAKARTA, KOTA YOGYAKARTA    

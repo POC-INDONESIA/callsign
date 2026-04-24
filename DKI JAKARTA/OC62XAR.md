@@ -1,4 +1,3 @@
 # OC62XAR
 Nama: HARIANTO    
-Channel: DKI JAKARTA    
 Domisili: DKI JAKARTA, KOTA ADM. JAKARTA SELATAN    

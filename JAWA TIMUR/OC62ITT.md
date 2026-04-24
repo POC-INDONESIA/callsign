@@ -1,5 +1,4 @@
 # OC62ITT
 ![Foto](https://portal.inadi.or.id//data/foto/e/0/c/e0c7d5aa6df51ec23ddb9110d849005d.jpg)    
 Nama: ASADA    
-Channel: JAWA TIMUR    
 Domisili: JAWA TIMUR, KOTA SURABAYA    

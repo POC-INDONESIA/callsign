@@ -1,5 +1,4 @@
 # OC62KMP
 ![Foto](https://portal.inadi.or.id//data/foto/7/1/1/71181435875e9dbc401ad681ba4bd01d.jpg)    
 Nama: HERWAN WIDODO    
-Channel: SUMATERA SELATAN    
 Domisili: Sumatera Selatan, Kota Prabumulih    

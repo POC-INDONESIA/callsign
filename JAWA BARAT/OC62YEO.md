@@ -1,5 +1,4 @@
 # OC62YEO
 ![Foto](https://portal.inadi.or.id//data/foto/9/0/c/90cd6f307b6d3fd8f63ed8ca98515fd4.jpg)    
 Nama: Bang Joy    
-Channel: JAWA BARAT    
 Domisili: JAWA BARAT, KOTA TASIKMALAYA    

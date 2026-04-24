@@ -1,4 +1,3 @@
 # OC62YCM
 Nama: ARIFIADI WIDIYA    
-Channel: JAWA BARAT    
 Domisili: JAWA BARAT, KOTA BEKASI    

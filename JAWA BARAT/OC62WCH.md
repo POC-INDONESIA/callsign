@@ -1,5 +1,4 @@
 # OC62WCH
 ![Foto](https://portal.inadi.or.id//data/foto/9/5/e/95e380cf8afc4f99c5a784b3045701c6.jpg)    
 Nama: Saiful Amri    
-Channel: JAWA BARAT    
 Domisili: JAWA BARAT, KOTA DEPOK    

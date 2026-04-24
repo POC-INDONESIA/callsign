@@ -1,4 +1,3 @@
 # OC62TDP
 Nama: ABD. KADIR    
-Channel: KALIMANTAN UTARA    
 Domisili: KALIMANTAN UTARA, KOTA TARAKAN    

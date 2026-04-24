@@ -1,5 +1,4 @@
 # OC62HFX
 ![Foto](https://portal.inadi.or.id//data/foto/0/6/7/067b568b0a145a04b874f9b187fd4740.jpg)    
 Nama: Damianto    
-Channel: BANTEN    
 Domisili: BANTEN, KAB. TANGERANG    

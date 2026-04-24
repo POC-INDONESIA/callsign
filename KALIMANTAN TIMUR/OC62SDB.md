@@ -1,4 +1,3 @@
 # OC62SDB
 Nama: Moh. Samsul Hadi    
-Channel: KALIMANTAN TIMUR    
 Domisili: KALIMANTAN TIMUR, KAB. KUTAI KARTANEGARA    

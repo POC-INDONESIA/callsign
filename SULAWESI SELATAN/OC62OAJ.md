@@ -1,4 +1,3 @@
 # OC62OAJ
 Nama: KINDI SIENA H    
-Channel: SULAWESI SELATAN    
 Domisili: SULAWESI SELATAN, KAB. GOWA    

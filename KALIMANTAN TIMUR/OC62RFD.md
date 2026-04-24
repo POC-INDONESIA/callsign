@@ -1,4 +1,3 @@
 # OC62RFD
 Nama: Rachmad    
-Channel: KALIMANTAN TIMUR    
 Domisili: DAERAH ISTIMEWA YOGYAKARTA, KOTA YOGYAKARTA    

@@ -1,4 +1,3 @@
 # OC62RCM
 Nama: Jemain    
-Channel: KALIMANTAN TIMUR    
 Domisili: KALIMANTAN TIMUR, KOTA SAMARINDA    

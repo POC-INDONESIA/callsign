@@ -1,4 +1,3 @@
 # OC62EBN
 Nama: Sudarto    
-Channel: KALIMANTAN TIMUR    
 Domisili: KALIMANTAN TIMUR, KAB. KUTAI KARTANEGARA    

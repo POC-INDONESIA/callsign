@@ -1,4 +1,3 @@
 # OC62CAN
 Nama: Ruslan, SE    
-Channel: KALIMANTAN TIMUR    
 Domisili: KALIMANTAN TIMUR, KAB. KUTAI KARTANEGARA    
