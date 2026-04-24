@@ -1,3 +1,3 @@
 # OC62BIN
 Nama: Surahman    
-Domisili: DAERAH ISTIMEWA YOGYAKARTA, KAB. KULON PROGO    
+Domisili: KAB. KULON PROGO    

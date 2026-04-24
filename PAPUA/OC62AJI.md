@@ -1,4 +1,4 @@
 # OC62AJI
-![Foto](https://portal.inadi.or.id//data/foto/0/0/b/00ba2ac2d6394214fd71bd529fa100bc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/0/b/00ba2ac2d6394214fd71bd529fa100bc.jpg)    
 Nama: MUHAMMAD SALEH    
-Domisili: PAPUA, KOTA JAYAPURA    
+Domisili: KOTA JAYAPURA    

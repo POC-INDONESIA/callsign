@@ -1,4 +1,4 @@
 # OC62MCH
-![Foto](https://portal.inadi.or.id//data/foto/1/c/5/1c5564e426b39bdd9e44f2c3c89b97b2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/c/5/1c5564e426b39bdd9e44f2c3c89b97b2.jpg)    
 Nama: I NENGAH SUECA    
-Domisili: BALI, KAB. TABANAN    
+Domisili: KAB. TABANAN    

@@ -1,3 +1,3 @@
 # OC62NCB
 Nama: HERMIN MIATI MAKABA    
-Domisili: PAPUA, KOTA JAYAPURA    
+Domisili: KOTA JAYAPURA    

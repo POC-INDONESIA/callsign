@@ -1,4 +1,4 @@
 # OC62BCG
-![Foto](https://portal.inadi.or.id//data/foto/e/f/9/ef9489cdaf0fb588a90e4643cc00aeac.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/f/9/ef9489cdaf0fb588a90e4643cc00aeac.jpg)    
 Nama: ZULKARNAIN     
-Domisili: SUMATERA UTARA, KOTA MEDAN    
+Domisili: KOTA MEDAN    

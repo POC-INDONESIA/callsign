@@ -1,4 +1,4 @@
 # OC62LEZ
-![Foto](https://portal.inadi.or.id//data/foto/7/4/1/741df210c62dd141d769bf96228bb615.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/4/1/741df210c62dd141d769bf96228bb615.jpg)    
 Nama: Muhammad Gunawan    
-Domisili: BANTEN, KOTA TANGERANG SELATAN    
+Domisili: KOTA TANGERANG SELATAN    

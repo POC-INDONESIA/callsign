@@ -1,4 +1,4 @@
 # OC62NEF
-![Foto](https://portal.inadi.or.id//data/foto/b/0/c/b0c7900774ab3a3750cd971a63179681.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/0/c/b0c7900774ab3a3750cd971a63179681.jpg)    
 Nama: BAHTIYAR    
-Domisili: KALIMANTAN SELATAN, KAB. HULU SUNGAI TENGAH    
+Domisili: KAB. HULU SUNGAI TENGAH    

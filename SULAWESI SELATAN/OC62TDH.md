@@ -1,4 +1,4 @@
 # OC62TDH
-![Foto](https://portal.inadi.or.id//data/foto/a/e/1/ae185b83b9496d50768d6a07f45f605e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/e/1/ae185b83b9496d50768d6a07f45f605e.jpg)    
 Nama: Ibrahim Yakub, S.Hut    
-Domisili: SULAWESI SELATAN, KAB. LUWU TIMUR    
+Domisili: KAB. LUWU TIMUR    

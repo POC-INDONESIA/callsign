@@ -1,4 +1,4 @@
 # OC62LFD
-![Foto](https://portal.inadi.or.id//data/foto/2/f/d/2fda9f2a0ea84bffd0e884c9f9e9c195.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/d/2fda9f2a0ea84bffd0e884c9f9e9c195.jpg)    
 Nama: GILANG YANUAR RAMADHAN    
-Domisili: JAWA TENGAH, KAB. PURWOREJO    
+Domisili: KAB. PURWOREJO    

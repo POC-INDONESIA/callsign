@@ -1,3 +1,3 @@
 # OC62QBE
 Nama: Misngad Supriono    
-Domisili: ,     
+Domisili:     

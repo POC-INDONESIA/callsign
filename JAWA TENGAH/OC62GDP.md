@@ -1,4 +1,4 @@
 # OC62GDP
-![Foto](https://portal.inadi.or.id//data/foto/3/f/4/3f4acf2abfa52fef4cfecafc59f604ad.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/f/4/3f4acf2abfa52fef4cfecafc59f604ad.jpg)    
 Nama: GHAFFAREL ADIRA KAUTSAR    
-Domisili: JAWA TENGAH, KOTA SURAKARTA    
+Domisili: KOTA SURAKARTA    

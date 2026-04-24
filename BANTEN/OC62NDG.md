@@ -1,4 +1,4 @@
 # OC62NDG
-![Foto](https://portal.inadi.or.id//data/foto/a/9/6/a968abb01711b19263d1c523054fe64e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/9/6/a968abb01711b19263d1c523054fe64e.jpg)    
 Nama: ULUWAN    
-Domisili: BANTEN, KAB. LEBAK    
+Domisili: KAB. LEBAK    

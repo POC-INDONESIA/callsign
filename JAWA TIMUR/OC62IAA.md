@@ -1,4 +1,4 @@
 # OC62IAA
-![Foto](https://portal.inadi.or.id//data/foto/4/0/4/4045b9b7aba8bc9df06e3ca17bb46fef.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/0/4/4045b9b7aba8bc9df06e3ca17bb46fef.jpg)    
 Nama: Joko Suwito    
-Domisili: JAWA TIMUR, KAB. MAGETAN    
+Domisili: KAB. MAGETAN    

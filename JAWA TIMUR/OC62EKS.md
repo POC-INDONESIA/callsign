@@ -1,4 +1,4 @@
 # OC62EKS
-![Foto](https://portal.inadi.or.id//data/foto/4/9/0/490410626c94aeb5b8cc6209216d844e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/9/0/490410626c94aeb5b8cc6209216d844e.jpg)    
 Nama: SIGIT HARYO WIBOWO SH.    
-Domisili: JAWA TIMUR, KOTA MADIUN    
+Domisili: KOTA MADIUN    

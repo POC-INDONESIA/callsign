@@ -1,4 +1,4 @@
 # OC62CGK
-![Foto](https://portal.inadi.or.id//data/foto/a/a/b/aabbb9e4926fcfb3c4a366dac47386f5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/a/b/aabbb9e4926fcfb3c4a366dac47386f5.jpg)    
 Nama: Rovel Rinaldi    
-Domisili: Jambi, Kabupaten Muaro Jambi    
+Domisili: Kabupaten Muaro Jambi    

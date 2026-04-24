@@ -1,4 +1,4 @@
 # OC62QFL
-![Foto](https://portal.inadi.or.id//data/foto/d/b/7/db74f8693c37900af9975abe6ac5490c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/b/7/db74f8693c37900af9975abe6ac5490c.jpg)    
 Nama: EDY SUPRIYANTO    
-Domisili: NUSA TENGGARA BARAT, KAB. LOMBOK BARAT    
+Domisili: KAB. LOMBOK BARAT    

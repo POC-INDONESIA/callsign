@@ -1,4 +1,4 @@
 # OC62YAP
-![Foto](https://portal.inadi.or.id//data/foto/b/2/8/b280c879ddb4bc0d253c1134430e0a8f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/2/8/b280c879ddb4bc0d253c1134430e0a8f.jpg)    
 Nama: Ahmad Fauzi    
-Domisili: JAWA BARAT, KAB. BEKASI    
+Domisili: KAB. BEKASI    

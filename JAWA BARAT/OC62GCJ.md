@@ -1,4 +1,4 @@
 # OC62GCJ
-![Foto](https://portal.inadi.or.id//data/foto/c/d/5/cd52e28844ac79fa3542c827d4f4dbed.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/d/5/cd52e28844ac79fa3542c827d4f4dbed.jpg)    
 Nama: Agus Sugianto    
-Domisili: JAWA BARAT, KAB. CIANJUR    
+Domisili: KAB. CIANJUR    

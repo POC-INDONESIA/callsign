@@ -1,4 +1,4 @@
 # OC62AG
-![Foto](https://portal.inadi.or.id//data/foto/c/1/0/c105a0065295dcac119572eb1994c5ed.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/1/0/c105a0065295dcac119572eb1994c5ed.jpg)    
 Nama: S WIDODO    
-Domisili: Jawa Timur, Kabupaten Probolinggo    
+Domisili: Kabupaten Probolinggo    

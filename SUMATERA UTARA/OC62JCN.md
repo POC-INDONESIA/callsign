@@ -1,4 +1,4 @@
 # OC62JCN
-![Foto](https://portal.inadi.or.id//data/foto/b/7/2/b72439be1309ba41ba36fe0e5f9a7856.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/2/b72439be1309ba41ba36fe0e5f9a7856.jpg)    
 Nama: Ibnu Hajar Imam Satya    
-Domisili: SUMATERA UTARA, KAB. DELI SERDANG    
+Domisili: KAB. DELI SERDANG    

@@ -1,3 +1,3 @@
 # OC62GBL
 Nama: SUTRISNO    
-Domisili: JAWA TIMUR, KAB. PACITAN    
+Domisili: KAB. PACITAN    

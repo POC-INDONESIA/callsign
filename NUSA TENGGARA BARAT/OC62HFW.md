@@ -1,4 +1,4 @@
 # OC62HFW
-![Foto](https://portal.inadi.or.id//data/foto/d/f/e/dfe429a8ce40f66e2ed0ed77824ff3ee.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/f/e/dfe429a8ce40f66e2ed0ed77824ff3ee.jpg)    
 Nama: Diva satria    
-Domisili: NUSA TENGGARA BARAT, KOTA MATARAM    
+Domisili: KOTA MATARAM    

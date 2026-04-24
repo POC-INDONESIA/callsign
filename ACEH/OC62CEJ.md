@@ -1,4 +1,4 @@
 # OC62CEJ
-![Foto](https://portal.inadi.or.id//data/foto/4/b/e/4be507f1195f88873baa4aa9826d61ee.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/b/e/4be507f1195f88873baa4aa9826d61ee.jpg)    
 Nama: M Idris     
-Domisili: ACEH, KAB. ACEH UTARA    
+Domisili: KAB. ACEH UTARA    

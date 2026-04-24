@@ -1,4 +1,4 @@
 # OC62KDT
-![Foto](https://portal.inadi.or.id//data/foto/6/0/2/6027ce35705f7435b68668fa2f238dbb.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/0/2/6027ce35705f7435b68668fa2f238dbb.jpg)    
 Nama: Kasmani    
-Domisili: JAWA TIMUR, KAB. TUBAN    
+Domisili: KAB. TUBAN    

@@ -1,4 +1,4 @@
 # OC62IPN
-![Foto](https://portal.inadi.or.id//data/foto/7/e/d/7ed924da293c12e629c770862c1d080c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/e/d/7ed924da293c12e629c770862c1d080c.jpg)    
 Nama: ADI SUSENO    
-Domisili: SUMATERA UTARA, KOTA MEDAN    
+Domisili: KOTA MEDAN    

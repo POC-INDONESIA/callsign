@@ -1,4 +1,4 @@
 # OC62JFV
-![Foto](https://portal.inadi.or.id//data/foto/7/6/0/76031a105ec6091a7d3375b0cca2968c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/6/0/76031a105ec6091a7d3375b0cca2968c.jpg)    
 Nama: LILI ISMANI    
-Domisili: SUMATERA SELATAN, KOTA LUBUK LINGGAU    
+Domisili: KOTA LUBUK LINGGAU    

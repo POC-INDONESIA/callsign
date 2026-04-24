@@ -1,3 +1,3 @@
 # OC62ZBW
 Nama: KARSIN    
-Domisili: ,     
+Domisili:     

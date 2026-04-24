@@ -1,3 +1,3 @@
 # OC62KBW
 Nama: ABDUL KADIR    
-Domisili: KALIMANTAN TIMUR, KAB. KUTAI TIMUR    
+Domisili: KAB. KUTAI TIMUR    

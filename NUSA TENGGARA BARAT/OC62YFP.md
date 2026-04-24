@@ -1,4 +1,4 @@
 # OC62YFP
-![Foto](https://portal.inadi.or.id//data/foto/8/c/d/8cd47ba9695c4bc0a9861f03e97a3958.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/c/d/8cd47ba9695c4bc0a9861f03e97a3958.jpg)    
 Nama: Suradi sasak    
-Domisili: Nusa Tenggara Barat, Kota Mataram    
+Domisili: Kota Mataram    

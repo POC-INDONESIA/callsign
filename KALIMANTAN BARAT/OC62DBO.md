@@ -1,4 +1,4 @@
 # OC62DBO
-![Foto](https://portal.inadi.or.id//data/foto/d/1/3/d1381f5f57efa420ff4f815122f3b991.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/1/3/d1381f5f57efa420ff4f815122f3b991.jpg)    
 Nama: MANSYAH    
-Domisili: KALIMANTAN BARAT, KAB. SAMBAS    
+Domisili: KAB. SAMBAS    

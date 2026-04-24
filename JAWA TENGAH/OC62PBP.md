@@ -1,4 +1,4 @@
 # OC62PBP
-![Foto](https://portal.inadi.or.id//data/foto/0/8/1/0813a0747535801585037c276bc05640.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/8/1/0813a0747535801585037c276bc05640.jpg)    
 Nama: Budi Setiyo Pramono     
-Domisili: JAWA TENGAH, KAB. PURBALINGGA    
+Domisili: KAB. PURBALINGGA    

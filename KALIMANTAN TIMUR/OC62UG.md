@@ -1,4 +1,4 @@
 # OC62UG
-![Foto](https://portal.inadi.or.id//data/foto/2/a/f/2af92e8f52835492135732de03f67926.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/a/f/2af92e8f52835492135732de03f67926.jpg)    
 Nama: UDAKA GOEYANA    
-Domisili: KALIMANTAN TIMUR, KOTA SAMARINDA    
+Domisili: KOTA SAMARINDA    

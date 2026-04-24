@@ -1,4 +1,4 @@
 # OC62BGK
-![Foto](https://portal.inadi.or.id//data/foto/6/d/8/6d82d9b6bd57f28238af5e3e21833031.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/d/8/6d82d9b6bd57f28238af5e3e21833031.jpg)    
 Nama: BAGIYO T    
-Domisili: Sumatera Selatan, Kabupaten Musi Rawas    
+Domisili: Kabupaten Musi Rawas    

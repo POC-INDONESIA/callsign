@@ -1,4 +1,4 @@
 # OC62WAC
-![Foto](https://portal.inadi.or.id//data/foto/3/2/2/32289d0c17f5825dd35af4a49ff24ada.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/2/2/32289d0c17f5825dd35af4a49ff24ada.jpg)    
 Nama: Nuramlan Ridwan, S.E.    
-Domisili: SULAWESI SELATAN, KOTA MAKASSAR    
+Domisili: KOTA MAKASSAR    

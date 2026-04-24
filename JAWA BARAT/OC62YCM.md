@@ -1,3 +1,3 @@
 # OC62YCM
 Nama: ARIFIADI WIDIYA    
-Domisili: JAWA BARAT, KOTA BEKASI    
+Domisili: KOTA BEKASI    

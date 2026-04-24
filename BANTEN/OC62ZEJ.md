@@ -1,3 +1,3 @@
 # OC62ZEJ
 Nama: NIMUS PONDETE    
-Domisili: BANTEN, KAB. TANGERANG    
+Domisili: KAB. TANGERANG    

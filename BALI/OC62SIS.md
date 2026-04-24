@@ -1,4 +1,4 @@
 # OC62SIS
-![Foto](https://portal.inadi.or.id//data/foto/3/e/4/3e430f8f4fff55498d56f1e15c601333.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/e/4/3e430f8f4fff55498d56f1e15c601333.jpg)    
 Nama: Sismansjah    
-Domisili: KALIMANTAN TIMUR, KOTA BALIKPAPAN    
+Domisili: KOTA BALIKPAPAN    

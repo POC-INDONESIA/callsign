@@ -1,3 +1,3 @@
 # OC62KBZ
 Nama: MAMAT RUHIMAT    
-Domisili: JAWA BARAT, KAB. TASIKMALAYA    
+Domisili: KAB. TASIKMALAYA    

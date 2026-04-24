@@ -1,4 +1,4 @@
 # OC62ZFW
-![Foto](https://portal.inadi.or.id//data/foto/d/a/0/da0e4079dd4057ea7efcad903f9a8520.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/a/0/da0e4079dd4057ea7efcad903f9a8520.jpg)    
 Nama: Koeswinarno    
-Domisili: Nusa Tenggara Barat, Kota Mataram    
+Domisili: Kota Mataram    

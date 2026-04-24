@@ -1,4 +1,4 @@
 # OC62ONE
-![Foto](https://portal.inadi.or.id//data/foto/d/2/a/d2a9f7bd42a8392c9582097ce25d944e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/2/a/d2a9f7bd42a8392c9582097ce25d944e.jpg)    
 Nama: Iwan Budiyanto    
-Domisili: SUMATERA UTARA, KOTA PEMATANGSIANTAR    
+Domisili: KOTA PEMATANGSIANTAR    

@@ -1,4 +1,4 @@
 # OC62LFT
-![Foto](https://portal.inadi.or.id//data/foto/d/d/0/dd0b6340d775661b766f79124f006269.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/d/0/dd0b6340d775661b766f79124f006269.jpg)    
 Nama: Herlina Puspita Sari    
-Domisili: RIAU, KOTA PEKANBARU    
+Domisili: KOTA PEKANBARU    

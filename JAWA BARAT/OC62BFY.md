@@ -1,4 +1,4 @@
 # OC62BFY
-![Foto](https://portal.inadi.or.id//data/foto/9/1/3/91345ef74b650b039cfe558b22170226.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/1/3/91345ef74b650b039cfe558b22170226.jpg)    
 Nama: ADE TATANG    
-Domisili: JAWA BARAT, KOTA TASIKMALAYA    
+Domisili: KOTA TASIKMALAYA    

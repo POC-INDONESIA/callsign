@@ -1,4 +1,4 @@
 # OC62IEK
-![Foto](https://portal.inadi.or.id//data/foto/2/3/7/237500b3fdffdb77ad086b4f7f60ca56.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/7/237500b3fdffdb77ad086b4f7f60ca56.jpg)    
 Nama: Anthon Joy    
-Domisili: KALIMANTAN UTARA, KOTA TARAKAN    
+Domisili: KOTA TARAKAN    

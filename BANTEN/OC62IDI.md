@@ -1,4 +1,4 @@
 # OC62IDI
-![Foto](https://portal.inadi.or.id//data/foto/e/f/a/efa91e4bcbe2e2afeece39d349a44f70.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/f/a/efa91e4bcbe2e2afeece39d349a44f70.jpg)    
 Nama: Idi Rohaedi    
-Domisili: BANTEN, KOTA CILEGON    
+Domisili: KOTA CILEGON    

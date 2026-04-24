@@ -1,4 +1,4 @@
 # OC62CFV
-![Foto](https://portal.inadi.or.id//data/foto/f/c/4/fc429011edcebc423306f988e7165df4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/c/4/fc429011edcebc423306f988e7165df4.jpg)    
 Nama: Suriono    
-Domisili: JAWA TIMUR, KAB. BANYUWANGI    
+Domisili: KAB. BANYUWANGI    

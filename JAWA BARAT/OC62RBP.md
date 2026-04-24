@@ -1,4 +1,4 @@
 # OC62RBP
-![Foto](https://portal.inadi.or.id//data/foto/f/a/6/fa6c3ae32e4484666c09466ce2e7f5ad.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/a/6/fa6c3ae32e4484666c09466ce2e7f5ad.jpg)    
 Nama: Yulianda Syahputra    
-Domisili: JAWA BARAT, KAB. SUKABUMI    
+Domisili: KAB. SUKABUMI    

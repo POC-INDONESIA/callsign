@@ -1,4 +1,4 @@
 # OC62RDB
-![Foto](https://portal.inadi.or.id//data/foto/8/b/f/8bf25bd883feacb3057e98476b404c64.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/b/f/8bf25bd883feacb3057e98476b404c64.jpg)    
 Nama: Hery Mulyawan    
-Domisili: JAWA BARAT, KAB. KARAWANG    
+Domisili: KAB. KARAWANG    

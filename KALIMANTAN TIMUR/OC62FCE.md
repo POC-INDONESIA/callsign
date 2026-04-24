@@ -1,3 +1,3 @@
 # OC62FCE
 Nama: MARNI    
-Domisili: KALIMANTAN TIMUR, KAB. KUTAI TIMUR    
+Domisili: KAB. KUTAI TIMUR    

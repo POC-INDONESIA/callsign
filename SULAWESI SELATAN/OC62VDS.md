@@ -1,4 +1,4 @@
 # OC62VDS
-![Foto](https://portal.inadi.or.id//data/foto/a/3/2/a326bd55ad6eba718277b1837320999e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/3/2/a326bd55ad6eba718277b1837320999e.jpg)    
 Nama: HASANUDDIN    
-Domisili: SULAWESI SELATAN, KAB. SIDENRENG RAPPANG    
+Domisili: KAB. SIDENRENG RAPPANG    

@@ -1,4 +1,4 @@
 # OC62MAS
-![Foto](https://portal.inadi.or.id//data/foto/b/4/8/b48dff0ab940b75cbc1f649e3fb49020.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/4/8/b48dff0ab940b75cbc1f649e3fb49020.jpg)    
 Nama: Edi Prihanto    
-Domisili: DKI JAKARTA, KOTA ADM. JAKARTA UTARA    
+Domisili: KOTA ADM. JAKARTA UTARA    

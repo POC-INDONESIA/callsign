@@ -1,4 +1,4 @@
 # OC62NBQ
-![Foto](https://portal.inadi.or.id//data/foto/4/c/d/4cd139548d8f4f25594cb2a0e609bb1d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/c/d/4cd139548d8f4f25594cb2a0e609bb1d.jpg)    
 Nama: SLAMET INDRASAKTI    
-Domisili: JAWA BARAT, KAB. BEKASI    
+Domisili: KAB. BEKASI    

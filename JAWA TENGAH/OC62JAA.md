@@ -1,4 +1,4 @@
 # OC62JAA
-![Foto](https://portal.inadi.or.id//data/foto/4/b/c/4bc7beb6a329cb673b94398feb7db7da.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/c/8/bc8bb62c317be51de73716cccd022b9e.jpg)    
 Nama: Alexander Joko Sulistyo    
-Domisili: JAWA TENGAH, KOTA SURAKARTA    
+Domisili: Kota Surakarta    

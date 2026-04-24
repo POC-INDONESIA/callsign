@@ -1,3 +1,3 @@
 # OC62OAJ
 Nama: KINDI SIENA H    
-Domisili: SULAWESI SELATAN, KAB. GOWA    
+Domisili: KAB. GOWA    

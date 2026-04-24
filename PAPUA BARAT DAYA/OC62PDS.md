@@ -1,4 +1,4 @@
 # OC62PDS
-![Foto](https://portal.inadi.or.id//data/foto/d/2/7/d27f8457bdf628fcb95c4f299b2cd523.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/2/7/d27f8457bdf628fcb95c4f299b2cd523.jpg)    
 Nama: Arie Pratidhina    
-Domisili: PAPUA BARAT DAYA,     
+Domisili:     

@@ -1,4 +1,4 @@
 # OC62CFY
-![Foto](https://portal.inadi.or.id//data/foto/3/2/1/321557f9cc7957ec78e72e60f5ca6ecd.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/2/1/321557f9cc7957ec78e72e60f5ca6ecd.jpg)    
 Nama: KOMANG INDRA KUSUMA    
-Domisili: BALI, KAB. BULELENG    
+Domisili: KAB. BULELENG    

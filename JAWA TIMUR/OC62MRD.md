@@ -1,4 +1,4 @@
 # OC62MRD
-![Foto](https://portal.inadi.or.id//data/foto/2/0/e/20e446ba16d3027398e7e91fdc02e30f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/0/e/20e446ba16d3027398e7e91fdc02e30f.jpg)    
 Nama: Doddy Poernamadjaja    
-Domisili: JAWA TIMUR, KAB. GRESIK    
+Domisili: KAB. GRESIK    

@@ -1,3 +1,3 @@
 # OC62IAB
 Nama: H. Ikwandi    
-Domisili: KALIMANTAN TIMUR, KAB. KUTAI KARTANEGARA    
+Domisili: KAB. KUTAI KARTANEGARA    

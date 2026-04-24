@@ -1,4 +1,4 @@
 # OC62COM
-![Foto](https://portal.inadi.or.id//data/foto/7/4/a/74ae4234e8d267f631e060eb12b8e46a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/4/a/74ae4234e8d267f631e060eb12b8e46a.jpg)    
 Nama: BASKOM    
-Domisili: Nusa Tenggara Barat, Kabupaten Sumbawa    
+Domisili: Kabupaten Sumbawa    

@@ -1,4 +1,4 @@
 # OC62WEF
-![Foto](https://portal.inadi.or.id//data/foto/0/9/5/09558d20f20c2740d7963b2c0242988d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/9/5/09558d20f20c2740d7963b2c0242988d.jpg)    
 Nama: Elvi Devita, S.Pd    
-Domisili: SUMATERA SELATAN, KOTA LUBUK LINGGAU    
+Domisili: KOTA LUBUK LINGGAU    

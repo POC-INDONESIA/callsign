@@ -1,3 +1,3 @@
 # OC62RED
 Nama: REDDIYANTO SOENGGAWAN    
-Domisili: BALI, KAB. BADUNG    
+Domisili: KAB. BADUNG    

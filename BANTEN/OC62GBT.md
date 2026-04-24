@@ -1,4 +1,4 @@
 # OC62GBT
-![Foto](https://portal.inadi.or.id//data/foto/d/e/c/decc7c0b60aa406aaeee84804ef6e29e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/e/c/decc7c0b60aa406aaeee84804ef6e29e.jpg)    
 Nama: Hery Wangsa    
-Domisili: Banten, Kabupaten Tangerang    
+Domisili: Kabupaten Tangerang    

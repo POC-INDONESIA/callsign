@@ -1,4 +1,4 @@
 # OC62WCE
-![Foto](https://portal.inadi.or.id//data/foto/4/4/9/44907fa9191fbe72dd4d60006f85fbb4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/4/9/44907fa9191fbe72dd4d60006f85fbb4.jpg)    
 Nama: Aurelius Godja    
-Domisili: KALIMANTAN TIMUR, KAB. KUTAI TIMUR    
+Domisili: KAB. KUTAI TIMUR    

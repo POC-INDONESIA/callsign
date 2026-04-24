@@ -1,4 +1,4 @@
 # OC62MFW
-![Foto](https://portal.inadi.or.id//data/foto/6/e/e/6ee40dbbc0f03677cf02b08106837a29.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/e/e/6ee40dbbc0f03677cf02b08106837a29.jpg)    
 Nama: GUNTUR IRIANTO    
-Domisili: JAWA TIMUR, KAB. KEDIRI    
+Domisili: KAB. KEDIRI    

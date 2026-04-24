@@ -1,4 +1,4 @@
 # OC62YFL
-![Foto](https://portal.inadi.or.id//data/foto/2/c/6/2c625d1ed421ad18cf22d7acc6904791.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/c/6/2c625d1ed421ad18cf22d7acc6904791.jpg)    
 Nama: Muhammad khamdani    
-Domisili: Jawa Barat, Kabupaten Bogor    
+Domisili: Kabupaten Bogor    

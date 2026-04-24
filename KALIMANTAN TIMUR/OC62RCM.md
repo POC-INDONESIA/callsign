@@ -1,3 +1,3 @@
 # OC62RCM
 Nama: Jemain    
-Domisili: KALIMANTAN TIMUR, KOTA SAMARINDA    
+Domisili: KOTA SAMARINDA    

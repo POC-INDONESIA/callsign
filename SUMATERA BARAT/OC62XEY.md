@@ -1,4 +1,4 @@
 # OC62XEY
-![Foto](https://portal.inadi.or.id//data/foto/9/c/6/9c68809657172089151787a32cb0b02f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/c/6/9c68809657172089151787a32cb0b02f.jpg)    
 Nama: JONFIRMAN    
-Domisili: SUMATERA BARAT, KAB. SOLOK    
+Domisili: KAB. SOLOK    

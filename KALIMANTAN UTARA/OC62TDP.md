@@ -1,3 +1,3 @@
 # OC62TDP
 Nama: ABD. KADIR    
-Domisili: KALIMANTAN UTARA, KOTA TARAKAN    
+Domisili: KOTA TARAKAN    

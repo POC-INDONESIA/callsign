@@ -1,4 +1,4 @@
 # OC62QCR
-![Foto](https://portal.inadi.or.id//data/foto/c/b/7/cb7b3013dbe2790f239dde78930f90ce.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/b/7/cb7b3013dbe2790f239dde78930f90ce.jpg)    
 Nama: ADI BINTORO MAKSUM    
-Domisili: PAPUA, KAB. JAYAPURA    
+Domisili: KAB. JAYAPURA    

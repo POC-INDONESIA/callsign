@@ -1,4 +1,4 @@
 # OC62WHY
-![Foto](https://portal.inadi.or.id//data/foto/7/9/8/798aa7e26a9357992744152cf43ffaf9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/9/8/798aa7e26a9357992744152cf43ffaf9.jpg)    
 Nama: WAHYU KAMARUDDIN    
-Domisili: JAMBI, KAB. MUARO JAMBI    
+Domisili: KAB. MUARO JAMBI    

@@ -1,3 +1,3 @@
 # OC62ZBN
 Nama: FAUZAN    
-Domisili: KALIMANTAN SELATAN, KAB. BANJAR    
+Domisili: KAB. BANJAR    

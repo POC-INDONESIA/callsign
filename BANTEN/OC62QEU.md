@@ -1,4 +1,4 @@
 # OC62QEU
-![Foto](https://portal.inadi.or.id//data/foto/b/0/b/b0ba281ecbf9a8f9181979c411b569b0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/7/6/d76df35a93922da8ee0695c9f62a53af.jpg)    
 Nama: Yamto    
-Domisili: Banten, Kabupaten Tangerang    
+Domisili: Kabupaten Tangerang    

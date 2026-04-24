@@ -1,4 +1,4 @@
 # OC62RDM
-![Foto](https://portal.inadi.or.id//data/foto/4/b/4/4b40972e041c369a8f04d661a082ca62.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/b/4/4b40972e041c369a8f04d661a082ca62.jpg)    
 Nama: Ibrahim, S.AN    
-Domisili: SULAWESI SELATAN, KOTA PALOPO    
+Domisili: KOTA PALOPO    

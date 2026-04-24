@@ -1,4 +1,4 @@
 # OC62UFH
-![Foto](https://portal.inadi.or.id//data/foto/2/b/8/2b8561d65f59a76507e205f3ab399e65.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/b/8/2b8561d65f59a76507e205f3ab399e65.jpg)    
 Nama: Awaluddin    
-Domisili: NUSA TENGGARA BARAT, KOTA MATARAM    
+Domisili: KOTA MATARAM    

@@ -1,4 +1,4 @@
 # OC62ZBB
-![Foto](https://portal.inadi.or.id//data/foto/7/8/0/78014282ef28922b1df07505eacbf90f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/8/0/78014282ef28922b1df07505eacbf90f.jpg)    
 Nama: SANTOSO    
-Domisili: PAPUA BARAT DAYA,     
+Domisili:     

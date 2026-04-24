@@ -1,4 +1,4 @@
 # OC62TDV
-![Foto](https://portal.inadi.or.id//data/foto/e/5/d/e5d37dc106cc47993f9e0728bd97c753.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/5/d/e5d37dc106cc47993f9e0728bd97c753.jpg)    
 Nama: ANDREANNUS SHANTO RARIA    
-Domisili: JAWA TIMUR, KOTA MALANG    
+Domisili: KOTA MALANG    

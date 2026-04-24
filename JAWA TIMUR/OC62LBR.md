@@ -1,4 +1,4 @@
 # OC62LBR
-![Foto](https://portal.inadi.or.id//data/foto/b/9/f/b9fe482bc6cce5e6ac42c145885c2723.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/9/f/b9fe482bc6cce5e6ac42c145885c2723.jpg)    
 Nama: KHOIRUL ANAM    
-Domisili: JAWA TIMUR, KAB. SAMPANG    
+Domisili: KAB. SAMPANG    

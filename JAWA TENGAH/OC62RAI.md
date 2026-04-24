@@ -1,4 +1,4 @@
 # OC62RAI
-![Foto](https://portal.inadi.or.id//data/foto/9/b/7/9b7c146884cd0a50c29e174dcd2e9cb6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/b/7/9b7c146884cd0a50c29e174dcd2e9cb6.jpg)    
 Nama: Wirawan Sri Suko    
-Domisili: JAWA TENGAH, KAB. KARANGANYAR    
+Domisili: KAB. KARANGANYAR    

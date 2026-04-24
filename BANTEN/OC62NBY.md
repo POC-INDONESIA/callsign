@@ -1,4 +1,4 @@
 # OC62NBY
-![Foto](https://portal.inadi.or.id//data/foto/7/7/8/778a93cb376c2953620b09892c2cbd59.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/d/8/cd85420a530e1f02894669cb7ba786ba.jpg)    
 Nama: Krisna Agustian Hoemardhani     
-Domisili: BANTEN, KOTA TANGERANG SELATAN    
+Domisili: KOTA TANGERANG SELATAN    

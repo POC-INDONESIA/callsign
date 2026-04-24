@@ -1,4 +1,4 @@
 # OC62MDH
-![Foto](https://portal.inadi.or.id//data/foto/4/9/7/497d3ec5dba6576baaf467aee60d4e83.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/9/7/497d3ec5dba6576baaf467aee60d4e83.jpg)    
 Nama: DIDING    
-Domisili: BANTEN, KAB. TANGERANG    
+Domisili: KAB. TANGERANG    

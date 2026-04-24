@@ -1,3 +1,3 @@
 # OC62KDG
 Nama: EKO JUNIARDY, S.PD    
-Domisili: KALIMANTAN TIMUR, KAB. KUTAI TIMUR    
+Domisili: KAB. KUTAI TIMUR    

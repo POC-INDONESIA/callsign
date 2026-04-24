@@ -1,4 +1,4 @@
 # OC62MBB
-![Foto](https://portal.inadi.or.id//data/foto/4/e/c/4ec5b684baa95fcf7f4bcaae207b30bc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/e/c/4ec5b684baa95fcf7f4bcaae207b30bc.jpg)    
 Nama: Khairu Rohman    
-Domisili: BANTEN, KAB. SERANG    
+Domisili: KAB. SERANG    

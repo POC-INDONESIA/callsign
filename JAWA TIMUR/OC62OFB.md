@@ -1,4 +1,4 @@
 # OC62OFB
-![Foto](https://portal.inadi.or.id//data/foto/9/9/3/993618e55dcb307c98731da122d7441b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/9/3/993618e55dcb307c98731da122d7441b.jpg)    
 Nama: NARTI    
-Domisili: JAWA TIMUR, KOTA SURABAYA    
+Domisili: KOTA SURABAYA    

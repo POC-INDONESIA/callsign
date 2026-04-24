@@ -1,4 +1,4 @@
 # OC62GVE
-![Foto](https://portal.inadi.or.id//data/foto/d/3/a/d3aa59142c1aa25e7a13ab78975cecc2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/3/a/d3aa59142c1aa25e7a13ab78975cecc2.jpg)    
 Nama: Teguh Satrya    
-Domisili: KALIMANTAN TIMUR, KOTA SAMARINDA    
+Domisili: KOTA SAMARINDA    

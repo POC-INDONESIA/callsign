@@ -1,4 +1,4 @@
 # OC62FEC
-![Foto](https://portal.inadi.or.id//data/foto/b/9/a/b9a341521549db84812347a69ea548ec.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/9/a/b9a341521549db84812347a69ea548ec.jpg)    
 Nama: ROMLI SUCIPTO    
-Domisili: JAWA TENGAH, KAB. BANYUMAS    
+Domisili: KAB. BANYUMAS    

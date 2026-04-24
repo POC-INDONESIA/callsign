@@ -1,4 +1,4 @@
 # OC62XEH
-![Foto](https://portal.inadi.or.id//data/foto/7/e/e/7ee9701c941338e92d92ac87ba0a2588.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/e/e/7ee9701c941338e92d92ac87ba0a2588.jpg)    
 Nama: Sentot Istanto    
-Domisili: JAWA TENGAH, KOTA SEMARANG    
+Domisili: KOTA SEMARANG    

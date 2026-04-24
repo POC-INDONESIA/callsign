@@ -1,4 +1,4 @@
 # OC62TBE
-![Foto](https://portal.inadi.or.id//data/foto/4/b/8/4b814217c59063b3447b911c4bf53b25.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/b/8/4b814217c59063b3447b911c4bf53b25.jpg)    
 Nama: Setio Budiarso     
-Domisili: JAWA BARAT, KAB. BEKASI    
+Domisili: KAB. BEKASI    

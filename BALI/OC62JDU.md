@@ -1,4 +1,4 @@
 # OC62JDU
-![Foto](https://portal.inadi.or.id//data/foto/c/b/d/cbd364b00a12e7f974f40df55cadcc9d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/b/d/cbd364b00a12e7f974f40df55cadcc9d.jpg)    
 Nama: I GUSTI NYOMAN ADIWIJAYA, SH    
-Domisili: BALI, KAB. TABANAN    
+Domisili: KAB. TABANAN    

@@ -1,4 +1,4 @@
 # OC62ANA
-![Foto](https://portal.inadi.or.id//data/foto/5/6/3/563d22d53ccc277eb934d34161afdabd.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/d/2/6d241f591c03e319ef4979819486743e.jpg)    
 Nama: Anang Hidayat    
-Domisili: DAERAH ISTIMEWA YOGYAKARTA, KAB. SLEMAN    
+Domisili: Kabupaten Sleman    

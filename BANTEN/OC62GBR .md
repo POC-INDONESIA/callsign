@@ -1,4 +1,4 @@
 # OC62GBR 
-![Foto](https://portal.inadi.or.id//data/foto/1/b/b/1bb014e007ef8d14acbbc98be45a6836.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/b/b/1bb014e007ef8d14acbbc98be45a6836.jpg)    
 Nama: Dkrisno Suwarno    
-Domisili: BANTEN, KOTA TANGERANG SELATAN    
+Domisili: KOTA TANGERANG SELATAN    

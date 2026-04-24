@@ -1,3 +1,3 @@
 # OC62CAN
 Nama: Ruslan, SE    
-Domisili: KALIMANTAN TIMUR, KAB. KUTAI KARTANEGARA    
+Domisili: KAB. KUTAI KARTANEGARA    

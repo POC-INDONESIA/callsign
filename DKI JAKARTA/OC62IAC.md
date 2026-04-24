@@ -1,4 +1,4 @@
 # OC62IAC
-![Foto](https://portal.inadi.or.id//data/foto/b/c/a/bca83288df391fe9daa089d458969db6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/c/a/bca83288df391fe9daa089d458969db6.jpg)    
 Nama: SURYO SP    
-Domisili: DKI JAKARTA, KOTA ADM. JAKARTA TIMUR    
+Domisili: KOTA ADM. JAKARTA TIMUR    

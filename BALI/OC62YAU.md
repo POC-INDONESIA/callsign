@@ -1,4 +1,4 @@
 # OC62YAU
-![Foto](https://portal.inadi.or.id//data/foto/9/e/b/9eb7722bcf35c145c87cdf0e066861f8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/e/b/9eb7722bcf35c145c87cdf0e066861f8.jpg)    
 Nama: I NENGAH WANDRA    
-Domisili: BALI, KAB. TABANAN    
+Domisili: KAB. TABANAN    

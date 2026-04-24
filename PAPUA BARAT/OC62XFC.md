@@ -1,4 +1,4 @@
 # OC62XFC
-![Foto](https://portal.inadi.or.id//data/foto/2/f/2/2f2c3332312255bc7639d37750eca4f8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/2/2f2c3332312255bc7639d37750eca4f8.jpg)    
 Nama: RAMLAN ANDRIAN    
-Domisili: PAPUA BARAT, KAB. MANOKWARI    
+Domisili: KAB. MANOKWARI    

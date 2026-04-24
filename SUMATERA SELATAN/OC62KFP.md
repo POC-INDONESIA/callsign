@@ -1,4 +1,4 @@
 # OC62KFP
-![Foto](https://portal.inadi.or.id//data/foto/5/0/1/501e5a70f01a1214935050bd511eb30d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/0/1/501e5a70f01a1214935050bd511eb30d.jpg)    
 Nama: Sugeng Susanto    
-Domisili: SUMATERA SELATAN, KAB. MUSI RAWAS    
+Domisili: KAB. MUSI RAWAS    

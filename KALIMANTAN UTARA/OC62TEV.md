@@ -1,4 +1,4 @@
 # OC62TEV
-![Foto](https://portal.inadi.or.id//data/foto/3/5/a/35a92ee0bd976f9806f7ad8aa3357e84.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/5/a/35a92ee0bd976f9806f7ad8aa3357e84.jpg)    
 Nama: AMBAR TRIYOGA    
-Domisili: KALIMANTAN UTARA, KOTA TARAKAN    
+Domisili: KOTA TARAKAN    

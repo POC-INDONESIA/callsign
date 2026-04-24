@@ -1,4 +1,4 @@
 # OC62OAM
-![Foto](https://portal.inadi.or.id//data/foto/d/3/c/d3cbaa7eae76d32b199455ad44d72928.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/3/c/d3cbaa7eae76d32b199455ad44d72928.jpg)    
 Nama: Dwijo Waluyo    
-Domisili: JAWA TENGAH, KAB. KARANGANYAR    
+Domisili: KAB. KARANGANYAR    

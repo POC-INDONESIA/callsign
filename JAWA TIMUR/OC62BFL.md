@@ -1,4 +1,4 @@
 # OC62BFL
-![Foto](https://portal.inadi.or.id//data/foto/4/5/5/4553462357d6bb81edca356f8ac1811f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/5/5/4553462357d6bb81edca356f8ac1811f.jpg)    
 Nama: JONY AGUSTONO    
-Domisili: JAWA TIMUR, KOTA SURABAYA    
+Domisili: KOTA SURABAYA    

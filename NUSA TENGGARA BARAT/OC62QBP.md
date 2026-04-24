@@ -1,4 +1,4 @@
 # OC62QBP
-![Foto](https://portal.inadi.or.id//data/foto/4/a/3/4a33ab81e679221b63cee84af5ce8481.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/a/3/4a33ab81e679221b63cee84af5ce8481.jpg)    
 Nama: DEWA GEDE SUTAMA, S.Pd    
-Domisili: NUSA TENGGARA BARAT, KOTA MATARAM    
+Domisili: KOTA MATARAM    

@@ -1,4 +1,4 @@
 # OC62FDL
-![Foto](https://portal.inadi.or.id//data/foto/f/c/8/fc8301f7760efbdf4abcf822f17a4817.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/c/8/fc8301f7760efbdf4abcf822f17a4817.jpg)    
 Nama: Solikin    
-Domisili: KALIMANTAN TENGAH, KOTA PALANGKARAYA    
+Domisili: KOTA PALANGKARAYA    

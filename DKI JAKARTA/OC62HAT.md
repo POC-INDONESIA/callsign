@@ -1,4 +1,4 @@
 # OC62HAT
-![Foto](https://portal.inadi.or.id//data/foto/f/5/f/f5fe61abc87bc2c0a7f542fedd65d16f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/5/f/f5fe61abc87bc2c0a7f542fedd65d16f.jpg)    
 Nama: Budi Laksana    
-Domisili: DKI JAKARTA, KOTA ADM. JAKARTA BARAT    
+Domisili: KOTA ADM. JAKARTA BARAT    

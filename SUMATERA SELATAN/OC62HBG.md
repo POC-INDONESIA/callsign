@@ -1,4 +1,4 @@
 # OC62HBG
-![Foto](https://portal.inadi.or.id//data/foto/e/5/5/e551e75fe823f209f2f24f3bd3bae23a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/5/5/e551e75fe823f209f2f24f3bd3bae23a.jpg)    
 Nama: Hasbial Amri     
-Domisili: SUMATERA SELATAN, KOTA PALEMBANG    
+Domisili: KOTA PALEMBANG    

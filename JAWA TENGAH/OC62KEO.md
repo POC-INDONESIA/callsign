@@ -1,4 +1,4 @@
 # OC62KEO
-![Foto](https://portal.inadi.or.id//data/foto/3/8/e/38eab3965394942d4341870f4ec1f9ef.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/8/e/38eab3965394942d4341870f4ec1f9ef.jpg)    
 Nama: Elyas Cobain    
-Domisili: JAWA TENGAH, KOTA SEMARANG    
+Domisili: KOTA SEMARANG    

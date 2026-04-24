@@ -1,3 +1,3 @@
 # OC62DBH
 Nama: Yamadipati    
-Domisili: DKI JAKARTA, KOTA ADM. JAKARTA SELATAN    
+Domisili: KOTA ADM. JAKARTA SELATAN    

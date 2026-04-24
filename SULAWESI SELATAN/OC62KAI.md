@@ -1,4 +1,4 @@
 # OC62KAI
-![Foto](https://portal.inadi.or.id//data/foto/c/a/c/cac88a4a0fedaafbccb9e9122da57636.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/c/cac88a4a0fedaafbccb9e9122da57636.jpg)    
 Nama: Abriandi Rezky    
-Domisili: Sulawesi Selatan, Kota Parepare    
+Domisili: Kota Parepare    

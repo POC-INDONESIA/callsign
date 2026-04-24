@@ -1,4 +1,4 @@
 # OC62JCX
-![Foto](https://portal.inadi.or.id//data/foto/4/7/8/4784da426dae55bf07abc506d7ed72b6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/7/8/4784da426dae55bf07abc506d7ed72b6.jpg)    
 Nama: Boris    
-Domisili: JAWA BARAT, KOTA BEKASI    
+Domisili: KOTA BEKASI    

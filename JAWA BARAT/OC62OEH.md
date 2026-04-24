@@ -1,4 +1,4 @@
 # OC62OEH
-![Foto](https://portal.inadi.or.id//data/foto/5/0/8/508e8c868aa2389aa2d492bc32d52573.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/0/8/508e8c868aa2389aa2d492bc32d52573.jpg)    
 Nama: Ryan Sofyan    
-Domisili: JAWA BARAT, KOTA BANDUNG    
+Domisili: KOTA BANDUNG    

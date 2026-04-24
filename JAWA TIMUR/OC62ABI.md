@@ -1,3 +1,3 @@
 # OC62ABI
 Nama: SYAIFUDDIN JUHRI    
-Domisili: JAWA TIMUR, KAB. MOJOKERTO    
+Domisili: KAB. MOJOKERTO    

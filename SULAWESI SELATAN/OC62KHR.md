@@ -1,4 +1,4 @@
 # OC62KHR
-![Foto](https://portal.inadi.or.id//data/foto/5/c/0/5c0f837303057b6213890e18e7ca43ca.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/c/0/5c0f837303057b6213890e18e7ca43ca.jpg)    
 Nama: KAHARUDDIN    
-Domisili: SULAWESI SELATAN, KAB. SIDENRENG RAPPANG    
+Domisili: KAB. SIDENRENG RAPPANG    

@@ -1,4 +1,4 @@
 # OC62CEZ
-![Foto](https://portal.inadi.or.id//data/foto/4/6/d/46d9cb02a435563b3e0e3856c79118e8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/6/d/46d9cb02a435563b3e0e3856c79118e8.jpg)    
 Nama: WARSA SUWARSA    
-Domisili: JAWA BARAT, KOTA SUKABUMI    
+Domisili: KOTA SUKABUMI    

@@ -1,4 +1,4 @@
 # OC62BDH
-![Foto](https://portal.inadi.or.id//data/foto/2/c/b/2cb13203763b08a161d01d113fd43a5b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/c/b/2cb13203763b08a161d01d113fd43a5b.jpg)    
 Nama: SUYANTO     
-Domisili: KALIMANTAN TIMUR, KOTA SAMARINDA    
+Domisili: KOTA SAMARINDA    

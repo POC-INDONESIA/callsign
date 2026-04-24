@@ -1,4 +1,4 @@
 # OC62BS
-![Foto](https://portal.inadi.or.id//data/foto/c/b/a/cbaf60a07687cf7934cee32ce46e74d5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/b/a/cbaf60a07687cf7934cee32ce46e74d5.jpg)    
 Nama: SUKATELIN    
-Domisili: ,     
+Domisili:     

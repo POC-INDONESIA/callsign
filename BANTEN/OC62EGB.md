@@ -1,4 +1,4 @@
 # OC62EGB
-![Foto](https://portal.inadi.or.id//data/foto/9/6/2/96224e6639f454d4a930d2e39738365b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/6/2/96224e6639f454d4a930d2e39738365b.jpg)    
 Nama: Gontouri    
-Domisili: Banten, Kabupaten Tangerang    
+Domisili: Kabupaten Tangerang    

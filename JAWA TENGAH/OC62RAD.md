@@ -1,4 +1,4 @@
 # OC62RAD
-![Foto](https://portal.inadi.or.id//data/foto/1/5/d/15d79243edee7014462367a37d10f56e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/5/d/15d79243edee7014462367a37d10f56e.jpg)    
 Nama: Suganda Kartarahardja    
-Domisili: JAWA TENGAH, KAB. BREBES    
+Domisili: KAB. BREBES    

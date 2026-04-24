@@ -1,4 +1,4 @@
 # OC62HAS
-![Foto](https://portal.inadi.or.id//data/foto/8/d/e/8de757a338939dd6e79f5519470f0e5d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/d/e/8de757a338939dd6e79f5519470f0e5d.jpg)    
 Nama: Nildayanti    
-Domisili: SULAWESI SELATAN, KOTA PARE PARE    
+Domisili: KOTA PARE PARE    

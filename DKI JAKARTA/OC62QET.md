@@ -1,4 +1,4 @@
 # OC62QET
-![Foto](https://portal.inadi.or.id//data/foto/3/0/3/3031dfd6f4516bb73a3a3f1652894fe6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/0/3/3031dfd6f4516bb73a3a3f1652894fe6.jpg)    
 Nama: SUPARDI    
-Domisili: DKI JAKARTA, KOTA ADM. JAKARTA BARAT    
+Domisili: KOTA ADM. JAKARTA BARAT    

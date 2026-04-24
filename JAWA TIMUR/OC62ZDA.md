@@ -1,4 +1,4 @@
 # OC62ZDA
-![Foto](https://portal.inadi.or.id//data/foto/b/8/1/b81bd0adbc59db1ff590d1486c3742d1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/8/1/b81bd0adbc59db1ff590d1486c3742d1.jpg)    
 Nama: ILHAM RAMADHAN    
-Domisili: JAWA TIMUR, KOTA SURABAYA    
+Domisili: KOTA SURABAYA    

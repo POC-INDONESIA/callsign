@@ -1,4 +1,4 @@
 # OC62MCQ
-![Foto](https://portal.inadi.or.id//data/foto/2/3/c/23ccf9937e9e1f10d94458a96b90ec1f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/c/23ccf9937e9e1f10d94458a96b90ec1f.jpg)    
 Nama: I Nyoman Pilih    
-Domisili: BALI, KAB. BADUNG    
+Domisili: KAB. BADUNG    

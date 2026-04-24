@@ -1,4 +1,4 @@
 # OC62KFT
-![Foto](https://portal.inadi.or.id//data/foto/6/8/d/68d5c23278b74eb6f1aa4d99d15bca2d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/d/68d5c23278b74eb6f1aa4d99d15bca2d.jpg)    
 Nama: Sabungan Simanullang M. Psi    
-Domisili: SUMATERA UTARA, KOTA MEDAN    
+Domisili: KOTA MEDAN    

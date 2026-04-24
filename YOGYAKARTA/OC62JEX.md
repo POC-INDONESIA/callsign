@@ -1,4 +1,4 @@
 # OC62JEX
-![Foto](https://portal.inadi.or.id//data/foto/a/5/7/a57ec0b3082aedd489bc6c0a5e4499eb.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/5/7/a57ec0b3082aedd489bc6c0a5e4499eb.jpg)    
 Nama: EDHI YULIANTO NUGROHO    
-Domisili: DAERAH ISTIMEWA YOGYAKARTA, KAB. GUNUNGKIDUL    
+Domisili: KAB. GUNUNGKIDUL    

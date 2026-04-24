@@ -1,3 +1,3 @@
 # OC62XDQ
 Nama: Ahmad Safira    
-Domisili: KALIMANTAN SELATAN, KAB. HULU SUNGAI TENGAH    
+Domisili: KAB. HULU SUNGAI TENGAH    

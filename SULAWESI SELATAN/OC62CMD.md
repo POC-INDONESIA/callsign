@@ -1,3 +1,3 @@
 # OC62CMD
 Nama: GAFFAR YUNUS    
-Domisili: SULAWESI SELATAN, KOTA PARE PARE    
+Domisili: KOTA PARE PARE    

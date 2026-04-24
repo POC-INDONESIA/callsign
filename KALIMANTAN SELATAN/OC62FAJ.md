@@ -1,4 +1,4 @@
 # OC62FAJ
-![Foto](https://portal.inadi.or.id//data/foto/e/8/0/e804010101e53249276ec409fa4af908.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/8/0/e804010101e53249276ec409fa4af908.jpg)    
 Nama: RAHMATULLAH    
-Domisili: Kalimantan Selatan, Kota Banjarmasin    
+Domisili: Kota Banjarmasin    

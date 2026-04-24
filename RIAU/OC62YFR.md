@@ -1,4 +1,4 @@
 # OC62YFR
-![Foto](https://portal.inadi.or.id//data/foto/1/d/3/1d3487e384acfb81fb6329b9fede87e3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/d/3/1d3487e384acfb81fb6329b9fede87e3.jpg)    
 Nama: Syaiful    
-Domisili: Riau, Kota Pekanbaru    
+Domisili: Kota Pekanbaru    

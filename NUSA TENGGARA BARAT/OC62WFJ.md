@@ -1,4 +1,4 @@
 # OC62WFJ
-![Foto](https://portal.inadi.or.id//data/foto/c/b/b/cbb2e58d9d7eaf31315a9bb2205cb930.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/b/b/cbb2e58d9d7eaf31315a9bb2205cb930.jpg)    
 Nama: I NENGAH WARTIKA    
-Domisili: NUSA TENGGARA BARAT, KOTA MATARAM    
+Domisili: KOTA MATARAM    

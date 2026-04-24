@@ -1,4 +1,4 @@
 # OC62YFN
-![Foto](https://portal.inadi.or.id//data/foto/c/2/b/c2bbe04f432081e71dedfed1007606ee.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/2/b/c2bbe04f432081e71dedfed1007606ee.jpg)    
 Nama: M YUSUF    
-Domisili: Nusa Tenggara Barat, Kota Mataram    
+Domisili: Kota Mataram    

@@ -1,3 +1,3 @@
 # OC62KHO
 Nama: Eddie    
-Domisili: SUMATERA UTARA, KOTA MEDAN    
+Domisili: KOTA MEDAN    

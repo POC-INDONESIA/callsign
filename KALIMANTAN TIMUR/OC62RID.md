@@ -1,4 +1,4 @@
 # OC62RID
-![Foto](https://portal.inadi.or.id//data/foto/8/6/2/862a8a7749d77fb89e23b2faf24eb878.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/6/2/862a8a7749d77fb89e23b2faf24eb878.jpg)    
 Nama: Mohamad Ridwan     
-Domisili: Kalimantan Timur, Kabupaten Kutai Kartanegara    
+Domisili: Kabupaten Kutai Kartanegara    

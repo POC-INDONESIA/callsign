@@ -1,4 +1,4 @@
 # OC62HDQ
-![Foto](https://portal.inadi.or.id//data/foto/8/d/f/8dffc29221c2c14497cd5c843f65ad38.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/d/f/8dffc29221c2c14497cd5c843f65ad38.jpg)    
 Nama: I GUSTI MADE SANGKA WIJAYA, SP    
-Domisili: BALI, KAB. TABANAN    
+Domisili: KAB. TABANAN    

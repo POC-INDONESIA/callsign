@@ -1,4 +1,4 @@
 # OC62UET
-![Foto](https://portal.inadi.or.id//data/foto/1/2/1/12111028068bf31f893c6a2e152c93d1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/2/1/12111028068bf31f893c6a2e152c93d1.jpg)    
 Nama: NI LUH SUCI RESMINI    
-Domisili: BALI, KAB. BADUNG    
+Domisili: KAB. BADUNG    

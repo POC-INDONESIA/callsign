@@ -1,4 +1,4 @@
 # OC62JEB
-![Foto](https://portal.inadi.or.id//data/foto/6/5/7/6577e1b269e7c7ff81e65830b227a13a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/5/7/6577e1b269e7c7ff81e65830b227a13a.jpg)    
 Nama: Karsono    
-Domisili: JAWA TIMUR, KAB. TUBAN    
+Domisili: KAB. TUBAN    

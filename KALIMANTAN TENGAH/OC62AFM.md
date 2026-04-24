@@ -1,4 +1,4 @@
 # OC62AFM
-![Foto](https://portal.inadi.or.id//data/foto/1/0/5/105a516dfa0478daf969e9ca149ba942.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/0/5/105a516dfa0478daf969e9ca149ba942.jpg)    
 Nama: Budi Santoso    
-Domisili: KALIMANTAN TENGAH, KAB. KOTAWARINGIN BARAT    
+Domisili: KAB. KOTAWARINGIN BARAT    

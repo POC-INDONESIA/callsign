@@ -1,4 +1,4 @@
 # OC62XDC
-![Foto](https://portal.inadi.or.id//data/foto/7/6/1/7617b93f185f9124e0b96f732b25bd3d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/6/1/7617b93f185f9124e0b96f732b25bd3d.jpg)    
 Nama: Susanto     
-Domisili: SUMATERA SELATAN, KAB. MUSI RAWAS    
+Domisili: KAB. MUSI RAWAS    

@@ -1,4 +1,4 @@
 # OC62KDV
-![Foto](https://portal.inadi.or.id//data/foto/4/e/b/4eb64b3a7092e339d2ffd3c017e6c422.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/e/b/4eb64b3a7092e339d2ffd3c017e6c422.jpg)    
 Nama: Akhmadal    
-Domisili: KALIMANTAN TIMUR, KOTA SAMARINDA    
+Domisili: KOTA SAMARINDA    

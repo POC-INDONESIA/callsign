@@ -1,4 +1,4 @@
 # OC62SDF
-![Foto](https://portal.inadi.or.id//data/foto/6/2/b/62b0935a6b9c53b5df0980d7bb7ef602.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/2/b/62b0935a6b9c53b5df0980d7bb7ef602.jpg)    
 Nama: Salim Umar    
-Domisili: KALIMANTAN UTARA, KAB. MALINAU    
+Domisili: KAB. MALINAU    

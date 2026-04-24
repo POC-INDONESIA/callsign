@@ -1,4 +1,4 @@
 # OC62LFM
-![Foto](https://portal.inadi.or.id//data/foto/8/b/2/8b2a20761816a4ebe52b3bb2ce6bdb16.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/b/2/8b2a20761816a4ebe52b3bb2ce6bdb16.jpg)    
 Nama: Muhammad Akbar Ramadhan    
-Domisili: NUSA TENGGARA TIMUR, KAB. SUMBA BARAT DAYA    
+Domisili: KAB. SUMBA BARAT DAYA    

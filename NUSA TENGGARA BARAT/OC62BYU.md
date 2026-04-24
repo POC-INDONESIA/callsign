@@ -1,4 +1,4 @@
 # OC62BYU
-![Foto](https://portal.inadi.or.id//data/foto/6/a/2/6a2e97cd09abe880ce1415c5b9fe4ea3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/a/2/6a2e97cd09abe880ce1415c5b9fe4ea3.jpg)    
 Nama: Bayu Yulianto    
-Domisili: Nusa Tenggara Barat, Kota Mataram    
+Domisili: Kota Mataram    

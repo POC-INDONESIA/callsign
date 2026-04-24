@@ -1,3 +1,3 @@
 # OC62EBN
 Nama: Sudarto    
-Domisili: KALIMANTAN TIMUR, KAB. KUTAI KARTANEGARA    
+Domisili: KAB. KUTAI KARTANEGARA    

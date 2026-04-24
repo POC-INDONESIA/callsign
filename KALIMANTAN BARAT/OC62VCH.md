@@ -1,4 +1,4 @@
 # OC62VCH
-![Foto](https://portal.inadi.or.id//data/foto/b/7/6/b769aec437e00eb7736407f62e7b8c6c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/6/b769aec437e00eb7736407f62e7b8c6c.jpg)    
 Nama: RIKA KOMALA DEWI    
-Domisili: KALIMANTAN BARAT, KAB. SAMBAS    
+Domisili: KAB. SAMBAS    

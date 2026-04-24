@@ -1,3 +1,3 @@
 # OC62TEQ
 Nama: DASUKI    
-Domisili: BANTEN, KAB. LEBAK    
+Domisili: KAB. LEBAK    

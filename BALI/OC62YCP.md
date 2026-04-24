@@ -1,4 +1,4 @@
 # OC62YCP
-![Foto](https://portal.inadi.or.id//data/foto/6/6/7/667c0e8c48651f72822226beedbb59b2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/6/7/667c0e8c48651f72822226beedbb59b2.jpg)    
 Nama: I NYOMAN MUDITHA BATUR CIPTA    
-Domisili: BALI, KAB. BADUNG    
+Domisili: KAB. BADUNG    

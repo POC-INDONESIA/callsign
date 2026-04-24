@@ -1,4 +1,4 @@
 # OC62XEZ
-![Foto](https://portal.inadi.or.id//data/foto/8/7/7/8778bab8106c218734cc11c3feab1c25.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/7/7/8778bab8106c218734cc11c3feab1c25.jpg)    
 Nama: AHMAD SAPAWI     
-Domisili: BANTEN, KAB. TANGERANG    
+Domisili: KAB. TANGERANG    

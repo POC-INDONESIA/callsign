@@ -1,4 +1,4 @@
 # OC62ROM
-![Foto](https://portal.inadi.or.id//data/foto/0/7/2/072ce750e8a91c258697b1e0599e77fa.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/7/2/072ce750e8a91c258697b1e0599e77fa.jpg)    
 Nama: Romi Risad    
-Domisili: DKI JAKARTA, KOTA ADM. JAKARTA PUSAT    
+Domisili: KOTA ADM. JAKARTA PUSAT    

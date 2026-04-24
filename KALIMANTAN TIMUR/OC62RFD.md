@@ -1,3 +1,3 @@
 # OC62RFD
 Nama: Rachmad    
-Domisili: DAERAH ISTIMEWA YOGYAKARTA, KOTA YOGYAKARTA    
+Domisili: KOTA YOGYAKARTA    

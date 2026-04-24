@@ -1,4 +1,4 @@
 # OC62KEG
-![Foto](https://portal.inadi.or.id//data/foto/5/8/5/5857fa7f489af7632cc8d722e7fc80b8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/8/5/5857fa7f489af7632cc8d722e7fc80b8.jpg)    
 Nama: Eko Agus Suwondo    
-Domisili: JAWA TENGAH, KAB. SUKOHARJO    
+Domisili: KAB. SUKOHARJO    

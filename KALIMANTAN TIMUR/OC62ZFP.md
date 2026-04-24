@@ -1,3 +1,3 @@
 # OC62ZFP
 Nama: sugiyati    
-Domisili: Daerah Istimewa Yogyakarta, Kota Yogyakarta    
+Domisili: Kota Yogyakarta    

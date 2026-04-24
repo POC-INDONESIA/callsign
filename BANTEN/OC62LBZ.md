@@ -1,4 +1,4 @@
 # OC62LBZ
-![Foto](https://portal.inadi.or.id//data/foto/d/4/8/d48fde748be9d55cf81a3f9826c8799e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/4/8/d48fde748be9d55cf81a3f9826c8799e.jpg)    
 Nama: A Sulaeman    
-Domisili: Banten, Kota Tangerang    
+Domisili: Kota Tangerang    

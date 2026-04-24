@@ -1,4 +1,4 @@
 # OC62GCT
-![Foto](https://portal.inadi.or.id//data/foto/e/0/7/e07a49ad89d18c67acfebba7e3b8c858.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/0/7/e07a49ad89d18c67acfebba7e3b8c858.jpg)    
 Nama: Zainal Arifin    
-Domisili: KALIMANTAN TIMUR, KAB. PASER    
+Domisili: KAB. PASER    

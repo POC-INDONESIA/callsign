@@ -1,4 +1,4 @@
 # OC62GDF
-![Foto](https://portal.inadi.or.id//data/foto/4/e/6/4e65c064e1811e3ea7f1f95687528986.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/e/6/4e65c064e1811e3ea7f1f95687528986.jpg)    
 Nama: Ardhi Yanto    
-Domisili: BANTEN, KOTA TANGERANG    
+Domisili: KOTA TANGERANG    

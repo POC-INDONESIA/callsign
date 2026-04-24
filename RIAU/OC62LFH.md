@@ -1,4 +1,4 @@
 # OC62LFH
-![Foto](https://portal.inadi.or.id//data/foto/8/7/c/87c7cb1976c1b277d406b48c958b5c9b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/7/c/87c7cb1976c1b277d406b48c958b5c9b.jpg)    
 Nama: EDDY YANTO SJAHPUTRA    
-Domisili: RIAU, KAB. SIAK    
+Domisili: KAB. SIAK    

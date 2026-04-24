@@ -1,3 +1,3 @@
 # OC62KCG
 Nama: Wiratno    
-Domisili: DAERAH ISTIMEWA YOGYAKARTA, KOTA YOGYAKARTA    
+Domisili: KOTA YOGYAKARTA    

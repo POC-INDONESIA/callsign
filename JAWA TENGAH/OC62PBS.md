@@ -1,4 +1,4 @@
 # OC62PBS
-![Foto](https://portal.inadi.or.id//data/foto/e/9/2/e92a94a75493e9247f03540d1f181546.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/9/2/e92a94a75493e9247f03540d1f181546.jpg)    
 Nama: Jugho Sulistyo Wibowo    
-Domisili: Jawa Tengah, Kabupaten Banyumas    
+Domisili: Kabupaten Banyumas    

@@ -1,4 +1,4 @@
 # OC62ME
-![Foto](https://portal.inadi.or.id//data/foto/9/c/5/9c53bc950d6452eabc1b29a4a6fa1c01.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/c/5/9c53bc950d6452eabc1b29a4a6fa1c01.jpg)    
 Nama: ​ماس إيكو    
-Domisili: JAWA BARAT, KOTA CIREBON    
+Domisili: KOTA CIREBON    

@@ -1,4 +1,4 @@
 # OC62CAT
-![Foto](https://portal.inadi.or.id//data/foto/4/5/5/455d3ed84962d9f145daed7a091cf164.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/5/5/455d3ed84962d9f145daed7a091cf164.jpg)    
 Nama: SENDI AHMAD NOOR    
-Domisili: KALIMANTAN TIMUR, KOTA SAMARINDA    
+Domisili: KOTA SAMARINDA    

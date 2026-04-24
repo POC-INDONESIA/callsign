@@ -1,3 +1,3 @@
 # OC62DEK
 Nama: MARWAN    
-Domisili: DKI JAKARTA, KOTA ADM. JAKARTA BARAT    
+Domisili: KOTA ADM. JAKARTA BARAT    
