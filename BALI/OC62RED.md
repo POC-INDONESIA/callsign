@@ -1,0 +1,4 @@
+# OC62RED
+Nama: REDDIYANTO SOENGGAWAN    
+Channel: BALI    
+Domisili: BALI, KAB. BADUNG    

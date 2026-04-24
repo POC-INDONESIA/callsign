@@ -1,0 +1,4 @@
+# OC62DEK
+Nama: MARWAN    
+Channel: DKI JAKARTA    
+Domisili: DKI JAKARTA, KOTA ADM. JAKARTA BARAT    

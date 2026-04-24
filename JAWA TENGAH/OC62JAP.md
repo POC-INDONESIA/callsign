@@ -1,0 +1,5 @@
+# OC62JAP
+![Foto](https://portal.inadi.or.id//data/foto/2/e/3/2e30b8f6a8ad8d3326f7c7a415aa02a6.jpg)    
+Nama: Yulianto Boy    
+Channel: JAWA TENGAH    
+Domisili: Jawa Tengah, Kabupaten Sukoharjo    

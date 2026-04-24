@@ -1,0 +1,4 @@
+# OC62NCB
+Nama: HERMIN MIATI MAKABA    
+Channel: PAPUA    
+Domisili: PAPUA, KOTA JAYAPURA    

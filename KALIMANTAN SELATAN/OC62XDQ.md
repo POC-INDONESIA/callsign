@@ -1,0 +1,4 @@
+# OC62XDQ
+Nama: Ahmad Safira    
+Channel: KALIMANTAN SELATAN    
+Domisili: KALIMANTAN SELATAN, KAB. HULU SUNGAI TENGAH    

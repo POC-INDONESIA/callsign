@@ -1,0 +1,4 @@
+# OC62BIN
+Nama: Surahman    
+Channel: YOGYAKARTA    
+Domisili: DAERAH ISTIMEWA YOGYAKARTA, KAB. KULON PROGO    

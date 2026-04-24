@@ -1,0 +1,4 @@
+# OC62IAB
+Nama: H. Ikwandi    
+Channel: KALIMANTAN TIMUR    
+Domisili: KALIMANTAN TIMUR, KAB. KUTAI KARTANEGARA    

@@ -1,0 +1,4 @@
+# OC62KBZ
+Nama: MAMAT RUHIMAT    
+Channel: JAWA BARAT    
+Domisili: JAWA BARAT, KAB. TASIKMALAYA    

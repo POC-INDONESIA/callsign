@@ -1,0 +1,4 @@
+# OC62FCE
+Nama: MARNI    
+Channel: KALIMANTAN TIMUR    
+Domisili: KALIMANTAN TIMUR, KAB. KUTAI TIMUR    

@@ -1,0 +1,5 @@
+# OC62OER
+![Foto](https://portal.inadi.or.id//data/foto/5/c/7/5c7eea8a87cafe4fa9bfefdd18c9b4df.jpg)    
+Nama: Andreas Prasetyo    
+Channel: JAWA TIMUR    
+Domisili: JAWA TIMUR, KOTA MALANG    

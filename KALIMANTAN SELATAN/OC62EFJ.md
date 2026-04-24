@@ -1,0 +1,5 @@
+# OC62EFJ
+![Foto](https://portal.inadi.or.id//data/foto/d/1/6/d161d1387278b621f3808a01c6c9fcf8.jpg)    
+Nama: H Talib    
+Channel: KALIMANTAN SELATAN    
+Domisili: KALIMANTAN SELATAN, KAB. BANJAR    

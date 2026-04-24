@@ -1,0 +1,5 @@
+# OC62BCZ
+![Foto](https://portal.inadi.or.id//data/foto/1/a/7/1a7ba54cbb3b6467b0898918a6bb2a77.jpg)    
+Nama: AWANG SUMARDI     
+Channel: JAMBI    
+Domisili: ,     

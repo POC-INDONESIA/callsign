@@ -1,0 +1,5 @@
+# OC62UFQ
+![Foto](https://portal.inadi.or.id//data/foto/c/b/2/cb283a4a6c9daf6239a0a3e71ff71a62.jpg)    
+Nama: BUDI SETIAWAN    
+Channel: SUMATERA SELATAN    
+Domisili: SUMATERA SELATAN, KAB. LAHAT    

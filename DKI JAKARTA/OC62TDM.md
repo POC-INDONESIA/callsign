@@ -1,0 +1,5 @@
+# OC62TDM
+![Foto](https://portal.inadi.or.id//data/foto/1/f/f/1ff40ecb8f74e2f05a0d7e693f622ee5.jpg)    
+Nama: Supardi    
+Channel: DKI JAKARTA    
+Domisili: DKI JAKARTA, KOTA ADM. JAKARTA TIMUR    

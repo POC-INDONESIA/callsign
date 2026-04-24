@@ -1,0 +1,5 @@
+# OC62AHA
+![Foto](https://portal.inadi.or.id//data/foto/4/d/b/4db517be039b5afb45640d0f24c3cf7e.jpg)    
+Nama: Fadjar Wahyu Tridjono    
+Channel: SUMATERA UTARA    
+Domisili: Sumatera Utara, Kabupaten Deli Serdang    

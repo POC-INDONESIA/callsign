@@ -1,0 +1,5 @@
+# OC62KAU
+![Foto](https://portal.inadi.or.id//data/foto/e/a/a/eaa04feae302cccf2ba4eebfd66112fc.jpg)    
+Nama: RONNY NUGROHO SOEDARSONO    
+Channel: PAPUA    
+Domisili: PAPUA, KAB. JAYAPURA    

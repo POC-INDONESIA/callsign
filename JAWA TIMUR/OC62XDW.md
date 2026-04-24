@@ -1,0 +1,5 @@
+# OC62XDW
+![Foto](https://portal.inadi.or.id//data/foto/5/9/1/591cf46ad98e46ebbbb35f4f5126df5a.jpg)    
+Nama: BAMBANG DISWANTORO    
+Channel: JAWA TIMUR    
+Domisili: Jawa Timur, Kota Surabaya    
