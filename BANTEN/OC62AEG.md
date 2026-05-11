@@ -1,4 +1,4 @@
 # OC62AEG
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/4/b/c4bad53e763080a20990511b3b2ab05d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/6/8/f68499ce18c7441a2adeef07a8455489.jpg)    
 Nama: NAIM    
 Domisili: Kabupaten Tangerang    

@@ -1,4 +1,4 @@
 # OC62SAG
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/d/0/ad039519a50ca8ee659a6d39d2208bf7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/9/a/a9a9f35e8d74556c6eccc21d3a393817.jpg)    
 Nama: BhimoSeno    
 Domisili: Kabupaten Sidoarjo    

@@ -1,4 +1,4 @@
 # OC62IAW
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/3/8/838e143d0c34ec1b270e2947ce6c3708.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/8/d/e8d56d95edd84492a1288d56ee8c7aef.jpg)    
 Nama: MASRI, SH    
-Domisili: KAB. KOTAWARINGIN BARAT    
+Domisili: Kabupaten Kotawaringin Barat    

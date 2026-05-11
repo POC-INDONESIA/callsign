@@ -1,4 +1,4 @@
 # OC62OFX
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/9/4/1943293a32c8baca0ad45cc5aed74ccd.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/d/e/6de4b1d1f78736d8ca9ddcbdd16e1d8e.jpg)    
 Nama: ALI MASYKUR    
 Domisili: Kabupaten Banyumas    

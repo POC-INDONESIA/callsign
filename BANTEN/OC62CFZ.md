@@ -1,4 +1,4 @@
 # OC62CFZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/3/233b14e408cff532f440ffd99df30d98.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/b/c/9bc4dce03ab6ee479c6df98d992780a9.jpg)    
 Nama: Supriyadi    
-Domisili: KOTA TANGERANG    
+Domisili: Kota Tangerang    

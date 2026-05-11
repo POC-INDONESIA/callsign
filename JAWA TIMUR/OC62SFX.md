@@ -1,4 +1,4 @@
 # OC62SFX
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/0/b/40b2d549095802dc9524f31edb981869.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/e/0/ee0e4f898ee25169d791f53f8a43208b.jpg)    
 Nama: VICKY AMIRULLAH SETYO WIBOWO    
-Domisili: KAB. MADIUN    
+Domisili: Kabupaten Madiun    

@@ -1,4 +1,4 @@
 # OC62LEP
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/8/2/582cdf210c2daa6055935670e646635b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/5/a/35a312ea21133a368f72d8bb87de6802.jpg)    
 Nama: JOKO SUHENDRA    
-Domisili: KOTA MEDAN    
+Domisili: Kota Medan    

@@ -1,4 +1,4 @@
 # OC62QDY
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/9/d/29d47f1f4e711596d1b5e5291513e29c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/8/a/f8ac2798db3daacb0671b3a290647061.jpg)    
 Nama: Trisna Jauhary    
 Domisili: Kota Bogor    

@@ -1,4 +1,4 @@
 # OC62RAZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/d/6/1d68c3b354f8317fe8ba4a2be9213608.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/b/1/4b110ece3c5dcbaf2d8930e7446f9409.jpg)    
 Nama: SYANDI WIDODO    
-Domisili: KAB. KLATEN    
+Domisili: Kabupaten Klaten    

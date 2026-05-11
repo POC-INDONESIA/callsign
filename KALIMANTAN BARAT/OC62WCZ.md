@@ -1,4 +1,4 @@
 # OC62WCZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/6/a/86a49f89d36de5028f217296c5a2ae50.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/0/d/a0daaffde40407109dfbe2cb2c535306.jpg)    
 Nama: NANANG AFANDI    
 Domisili: Kabupaten Ketapang    

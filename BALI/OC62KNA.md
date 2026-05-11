@@ -1,4 +1,4 @@
 # OC62KNA
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/6/a/36add9d5da48c4aada51680818a5bd19.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/9/9/a99a8c0c91e6fb8b8220ecd5315f2e75.jpg)    
 Nama: I Ketut Nada    
 Domisili: Kota Denpasar    

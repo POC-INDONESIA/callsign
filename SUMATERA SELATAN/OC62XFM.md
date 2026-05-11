@@ -1,4 +1,4 @@
 # OC62XFM
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/5/4/354d4d2b209493355420a70fe400ab5e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/4/2/842ccf3d9d3423088d95ccddc4f392a2.jpg)    
 Nama: Supriyanto    
 Domisili: KAB. MUSI BANYUASIN    

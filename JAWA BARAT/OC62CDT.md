@@ -1,4 +1,4 @@
 # OC62CDT
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/9/2f964838d7bce42058a459edb0979897.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/a/1/8a1002ad3aaeda3b82b342db3feb3548.jpg)    
 Nama: Kresna    
 Domisili: Kabupaten Bogor    

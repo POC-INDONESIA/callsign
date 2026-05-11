@@ -1,4 +1,4 @@
 # OC62CBK
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/d/c/8dcc1372424ea914b84adb3bd597e585.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/d/d/0dd09832c4ac36f9c593987b53b7206c.jpg)    
 Nama: Jamaludin 42 RF    
-Domisili: KAB. KEBUMEN    
+Domisili: Kabupaten Kebumen    

@@ -1,4 +1,4 @@
 # OC62IEX
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/3/e/53e0e65033bda29d8f54e9c09429812b.jpg)    
-Nama: MASDAR    
-Domisili: KAB. BERAU    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/4/b/e4bfafc73b92a4fbb6b7719517f7e81e.jpg)    
+Nama: ARFANDY    
+Domisili: Kabupaten Berau    

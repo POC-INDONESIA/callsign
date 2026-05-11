@@ -1,4 +1,4 @@
 # OC62AFL
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/f/4/6f4f57bdf64ab45a0535ecb192ec1912.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/8/6/186445b5d04492f1e1c914780cae9a57.jpg)    
 Nama: BAYOM LUBIS    
 Domisili: Kota Sibolga    

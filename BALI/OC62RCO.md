@@ -1,4 +1,4 @@
 # OC62RCO
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/1/f/b1f69626058b05182e4fd624024571f9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/3/b/63bd74036bbc2f763e91f7e65dfc1e9d.jpg)    
 Nama: Julius Abbednico    
-Domisili: KAB. BULELENG    
+Domisili: Kabupaten Buleleng    

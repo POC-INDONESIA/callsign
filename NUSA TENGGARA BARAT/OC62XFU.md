@@ -1,4 +1,4 @@
 # OC62XFU
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/e/c/aecaf1e576b5a5fda5d49690b911e9be.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/c/4/bc44d61acf1f8b291895161963436c3e.jpg)    
 Nama: AHMAD JAYADI    
 Domisili: Kota Mataram    

@@ -1,4 +1,4 @@
 # OC62KIS
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/c/5/8c56a80525dd5131994a5ea22d05bcbe.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/2/5/525a5e2486211534f99900b5d9270809.jpg)    
 Nama: CHRISTOFEL KAWENGIAN    
 Domisili: Kabupaten Jayapura    

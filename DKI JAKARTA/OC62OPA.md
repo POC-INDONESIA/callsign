@@ -1,4 +1,4 @@
 # OC62OPA
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/6/2/c62ba257970049a99edd1cdbb94b116f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/9/ba9513d0dac48c92327015d007d0c21f.jpg)    
 Nama: Marshel Reyky Salmon    
 Domisili: KOTA BOGOR    

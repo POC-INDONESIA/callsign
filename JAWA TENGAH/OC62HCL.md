@@ -1,4 +1,4 @@
 # OC62HCL
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/8/0/980e298648cd1e34fb356b614967ecf4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/b/0/eb064f832da18289ee80116da850eaca.jpg)    
 Nama: Indra Kurniawan    
 Domisili: Kota Surakarta    

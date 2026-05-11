@@ -1,4 +1,4 @@
 # OC62VEG
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/f/c/1fc1245987d4d70aed88e46c22333eeb.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/c/f/0cfe37538b05ca000bf73dbb48b845dd.jpg)    
 Nama: Amran    
 Domisili: KOTA JAMBI    

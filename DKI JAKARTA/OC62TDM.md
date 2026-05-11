@@ -1,4 +1,4 @@
 # OC62TDM
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/f/f/1ff40ecb8f74e2f05a0d7e693f622ee5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/2/a/f2a80ae667cbcbdc8796dc114ba6ad93.jpg)    
 Nama: Supardi    
 Domisili: KOTA ADM. JAKARTA TIMUR    

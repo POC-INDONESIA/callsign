@@ -1,4 +1,4 @@
 # OC62XCS
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/5/e/35ec759b9a40fb6d153785b901111969.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/0/1/d016f136c950084fb88e1050d0d8eb78.jpg)    
 Nama: Yudi Mai Riski     
-Domisili: KOTA TANGERANG    
+Domisili: Kota Tangerang    

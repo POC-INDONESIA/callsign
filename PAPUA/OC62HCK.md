@@ -1,4 +1,4 @@
 # OC62HCK
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/8/2/2826ebf6981f9afa2dfea3781b52b9c9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/d/7/1d76e7324e860e352da0dd2a233c18b4.jpg)    
 Nama: MUIS WATTIMENA    
 Domisili: Kabupaten Jayapura    

@@ -1,4 +1,4 @@
 # OC62YCL
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/b/2/0b248ac1c4a5477edd521c56ad3e882d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/4/c/24cff21ddb0e816b8196f23097119a31.jpg)    
 Nama: Samsu Bahri    
 Domisili: KAB. BEKASI    

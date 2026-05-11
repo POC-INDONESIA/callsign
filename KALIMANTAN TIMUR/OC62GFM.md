@@ -1,4 +1,4 @@
 # OC62GFM
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/0/2f055033df0dd42d81cd2252066a854f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/2/a/d2aa19166a669a7731fdc1e8962d0067.jpg)    
 Nama: Suheran    
 Domisili: Kota Yogyakarta    

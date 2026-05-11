@@ -1,4 +1,4 @@
 # OC62YBQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/d/d/2dd1cdc1f35232f4fea1161fdf696fc0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/8/c/48c2b50821bc7438cb87e6e38d833888.jpg)    
 Nama: M. ASWIN TAUFIK    
-Domisili: KAB. JAYAPURA    
+Domisili: Kabupaten Jayapura    

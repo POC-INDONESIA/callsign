@@ -1,4 +1,4 @@
 # OC62QDK
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/0/4/7043e9a2c64a75ff95003a392700361b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/7/6/176306855d46246f8952f1e2eb812a96.jpg)    
 Nama: Muhammad Mirza    
 Domisili: KAB. DELI SERDANG    

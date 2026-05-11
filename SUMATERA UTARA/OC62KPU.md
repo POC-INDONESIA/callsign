@@ -1,4 +1,4 @@
 # OC62KPU
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/d/6/bd6cd16bf2f0ac06638969872ece6cfc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/7/8/c78e30b186a2390197c7a6d116fef0c9.jpg)    
 Nama: Khresnha Putra Utama    
-Domisili: KOTA MEDAN    
+Domisili: Kota Medan    

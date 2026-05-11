@@ -1,4 +1,4 @@
 # OC62WEX
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/9/3/c93a1305a29ef257917098f1a3747019.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/b/3/9b307f7d6bc34816123262e4df77382e.jpg)    
 Nama: Heru Winarto    
 Domisili: KOTA ADM. JAKARTA BARAT    

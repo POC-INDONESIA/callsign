@@ -1,4 +1,4 @@
 # OC62DFZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/0/f/10f7ead7b3688afcc2952c9d2634fe52.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/b/f/fbfc4f6f7cbcb39d5e21eff6c3d0169d.jpg)    
 Nama: NUR ALEK    
 Domisili: KAB. KUTAI TIMUR    

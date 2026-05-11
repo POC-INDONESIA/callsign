@@ -1,4 +1,4 @@
 # OC62COM
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/4/a/74ae4234e8d267f631e060eb12b8e46a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/9/9/599cdd1197d1df1855394ad5491fd34b.jpg)    
 Nama: BASKOM    
 Domisili: Kabupaten Sumbawa    

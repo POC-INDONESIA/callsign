@@ -1,4 +1,4 @@
 # OC62BFT
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/3/f/93fe2cb157bbeefd2496a3bd450f8238.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/5/4/05400bfb40aa4caf35b590d230778b3a.jpg)    
 Nama: KIKIN NURJAMAN    
 Domisili: Kabupaten Bandung    

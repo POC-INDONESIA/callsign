@@ -1,4 +1,4 @@
 # OC62PAP
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/7/c/c7c0e748da5b5f5bfbd3d6441bd775e7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/8/6/486e1f3622095966d286d07c85f764bd.jpg)    
 Nama: Dieka - Wedy    
 Domisili: Kota Tasikmalaya    

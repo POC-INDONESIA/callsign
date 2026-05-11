@@ -1,4 +1,4 @@
 # OC62QAN
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/1/6/71619e62942020bcc22ab4f1fe0916e4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/a/f/9afbb4a9e40885469796a89540665b97.jpg)    
 Nama: I WAYAN SUMENDRA    
 Domisili: KAB. KLUNGKUNG    

@@ -1,4 +1,4 @@
 # OC62ZEH
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/9/1/0913b490990b91eb2cbfef4a3f0da6c9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/b/f/4bf241b18b5e0bfdd9d2b547d8c1754b.jpg)    
 Nama: Sugeng wahyono    
 Domisili: KOTA ADM. JAKARTA BARAT    

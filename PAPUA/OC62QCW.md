@@ -1,4 +1,4 @@
 # OC62QCW
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/5/b757a5107cc21588a1468739cab91ee3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/a/a/3aa082b08afe875d2bb7db91f8a8cefa.jpg)    
 Nama: LUKAS LONDONG    
 Domisili: KAB. JAYAPURA    

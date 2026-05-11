@@ -1,4 +1,4 @@
 # OC62EKO
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/d/0/3d0a633e3ebd4c3e64d085599c4aa292.jpg)    
-Nama: Eko B S    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/0/d/40def874e401abe4c34c4a4c522ebd7e.jpg)    
+Nama: EKO B S    
 Domisili: Kota Bekasi    

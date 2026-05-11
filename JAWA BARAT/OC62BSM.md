@@ -1,4 +1,4 @@
 # OC62BSM
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/c/c/3cc0d06b2bd51734f6962bc516c3edc4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/6/0/560b15c8b8c4c803457b170a0d2f961d.jpg)    
 Nama: Iwan Hermawan    
-Domisili: KOTA BANDUNG    
+Domisili: Kota Bandung    

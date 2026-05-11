@@ -1,4 +1,4 @@
 # OC62CGQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/e/4/6e4198490c5c7710429ac94832ee3821.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/9/2/d92b3febc84b1f1960e020035a3a76f4.jpg)    
 Nama: MUH DEDE    
 Domisili: Kota Mataram    

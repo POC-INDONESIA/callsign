@@ -1,4 +1,4 @@
 # OC62YAZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/9/1/691699fa6744a5779ae3abdb57aeb182.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/8/8/188f6a042c98d212195cc5f967c7ee7a.jpg)    
 Nama: Diwar    
 Domisili:     

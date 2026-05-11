@@ -1,4 +1,4 @@
 # OC62AMR
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/e/b7ef06d13f75bd92f377efa072e3e938.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/f/8/af8a5cc8610cef3f1d61ba669911c765.jpg)    
 Nama: Amir Hamzah    
 Domisili: KAB. SUKABUMI    

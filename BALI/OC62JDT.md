@@ -1,4 +1,4 @@
 # OC62JDT
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/9/6/1966ca91bc6867d811ac8731771d783d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/5/f/e5f9befcd3a282f0a8435b761708664a.jpg)    
 Nama: NENGAH SUKANAYA    
 Domisili:     

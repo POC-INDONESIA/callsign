@@ -1,4 +1,4 @@
 # OC62DBR
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/b/d/abd5169a5f10c88311d0fea9ff7f2e71.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/2/2/d22c535f724549536842ebb1a20abe5c.jpg)    
 Nama: Andi Muhamad Saad    
 Domisili:     

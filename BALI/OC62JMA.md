@@ -1,4 +1,4 @@
 # OC62JMA
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/0/7/907ce4bdf1b525c80d7cf0e4cc712dea.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/6/d/86d83e48ec63a86a96fdcbaf7a0fb48f.jpg)    
 Nama: I Wayan Sentana Kariasa    
-Domisili:     
+Domisili: Kabupaten Klungkung    

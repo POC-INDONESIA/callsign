@@ -1,4 +1,4 @@
 # OC62EA
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/6/b/06b532cf4b184629b1ffce23c52aa4f5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/b/a/aba0a58bb23710707b24d1c20af77c0c.jpg)    
 Nama: I PUTU EKA ATMAJA    
-Domisili: KOTA DENPASAR    
+Domisili: Kota Denpasar    

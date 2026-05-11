@@ -1,4 +1,4 @@
 # OC62EFQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/a/b/fab649b6bd149270de5014024ba82a54.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/5/5/755d06adf2d1663aa0c70f20a5ffb9eb.jpg)    
 Nama: I KOMANG SUKERENA    
 Domisili: KAB. BULELENG    

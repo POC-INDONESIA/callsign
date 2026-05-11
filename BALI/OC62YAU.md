@@ -1,4 +1,4 @@
 # OC62YAU
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/e/b/9eb7722bcf35c145c87cdf0e066861f8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/1/7/e17618f0234660a06aa5cc8166de1aa9.jpg)    
 Nama: I NENGAH WANDRA    
-Domisili: KAB. TABANAN    
+Domisili: Kabupaten Tabanan    

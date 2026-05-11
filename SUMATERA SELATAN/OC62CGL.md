@@ -1,4 +1,4 @@
 # OC62CGL
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/c/1/0c1cccf91c5f9cd7eeaa64d3e4561dec.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/7/a/77ab797c07a16413e68c0c1f8517815e.jpg)    
 Nama: FERDY SISWANTO    
 Domisili: Kota Prabumulih    

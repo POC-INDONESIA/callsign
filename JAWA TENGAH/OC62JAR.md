@@ -1,4 +1,4 @@
 # OC62JAR
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/2/f/92f83766e648c7982d3ee6bc91000cf6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/7/727153e4666906cbff0da6bba0c2fa27.jpg)    
 Nama: ANIM TRI SUSANTO    
 Domisili: Kabupaten Sukoharjo    

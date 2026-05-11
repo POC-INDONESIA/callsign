@@ -1,4 +1,4 @@
 # OC62MSA
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/4/2/242a71f2103903ccee068e6d0c0ad243.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/f/3/7f335132dd45f5a5af58c9191e5ff279.jpg)    
 Nama: Massa    
-Domisili: KOTA DENPASAR    
+Domisili: Kota Denpasar    

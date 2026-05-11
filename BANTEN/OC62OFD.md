@@ -1,4 +1,4 @@
 # OC62OFD
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/f/8/3f86831e99036732ee73a0db225e406b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/e/4/5e436b5b810a4a15d874764537ff31ca.jpg)    
 Nama: Arief Arianto    
 Domisili: KAB. TANGERANG    

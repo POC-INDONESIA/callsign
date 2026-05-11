@@ -1,4 +1,4 @@
 # OC62NDJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/a/9/7a98abb1093cec83d418242cf6f29940.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/1/2/712941d28cfe6a81cb55c8f0ef44cea9.jpg)    
 Nama: Achmad Said    
 Domisili: KOTA SURABAYA    

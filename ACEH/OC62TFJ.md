@@ -1,4 +1,4 @@
 # OC62TFJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/b/9/db934d14220f53057940847cb02da3b4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/9/3/293f398d7a15893f0f4b0a0e7be342fc.jpg)    
 Nama: Herman sapriyanto    
 Domisili: KAB. ACEH TENGAH    

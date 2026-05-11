@@ -1,4 +1,4 @@
 # OC62MJC
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/e/e/cee69802d2475c57952c1e8f0ccfe84f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/c/d/0cd7b42894272b60e75b6fae17aa39f8.jpg)    
 Nama: Josmar Manullang    
-Domisili: KAB. DELI SERDANG    
+Domisili: Kabupaten Deli Serdang    
