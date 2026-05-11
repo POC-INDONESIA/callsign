@@ -1,4 +1,4 @@
 # OC62TCS
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/3/2f35e6a88937e301fcfa15cab2cc3cff.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/4/1/f41b837324e26ed3b787f39d7229ec35.jpg)    
 Nama: MISDI    
 Domisili:     
