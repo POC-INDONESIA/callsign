@@ -1,4 +1,4 @@
 # OC62FGX
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/e/5/be5f1db531764402d895a91ac9f31e02.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/c/4/4c44fc74ba04b0a1cef6f2c03a90bee1.jpg)    
 Nama: Imam Khaiyul Khusnan    
 Domisili: Kabupaten Bojonegoro    

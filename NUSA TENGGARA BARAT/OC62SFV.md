@@ -1,4 +1,4 @@
 # OC62SFV
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/1/9/e197bb803e0412ee70a48239ca1211a6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/0/ca0f12cefbe38cbc53b4dce64631d36f.jpg)    
 Nama: I GDE SUBAWA    
-Domisili: KAB. LOMBOK BARAT    
+Domisili: Kabupaten Lombok Barat    

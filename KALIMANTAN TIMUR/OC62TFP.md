@@ -1,4 +1,4 @@
 # OC62TFP
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/d/c/5dc22549c1ecd6588d066225431db0d0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/d/0/dd0a52193460f5a16896e1a0f2db5b3f.jpg)    
 Nama: Tuak Linglung    
 Domisili: KOTA PASURUAN    

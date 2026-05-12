@@ -1,4 +1,4 @@
 # OC62GBB
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/6/5/465bcc6d03dd1e1349308f9cd4752371.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/a/1/5a16ed855c0693390b6e4ef247c76268.jpg)    
 Nama: ARIS RUSMAN    
 Domisili: Kota Palembang    
