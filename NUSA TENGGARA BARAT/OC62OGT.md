@@ -1,4 +1,4 @@
 # OC62OGT
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/b/4/ab4f21871ce4d8e30842660d5d674eb4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/d/a/9dad1e49372adf61137266b4a583dbc4.jpg)    
 Nama: H  A  SYAKUR ALWAN    
 Domisili: Kabupaten Lombok Barat    
