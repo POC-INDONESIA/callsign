@@ -1,4 +1,4 @@
 # OC62MGQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/4/9/649936bf049abc2d80e8110d46755a2f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/8/f/b8f421625e54d051a7bc259b8f9a2e68.jpg)    
 Nama: Tugiran    
 Domisili: Kota Balikpapan    

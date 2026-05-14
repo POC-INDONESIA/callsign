@@ -1,4 +1,4 @@
 # OC62HFX
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/6/7/067b568b0a145a04b874f9b187fd4740.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/4/0/f401239acb2e4e495442b98d6e30d85a.jpg)    
 Nama: Damianto    
-Domisili: KAB. TANGERANG    
+Domisili: Kabupaten Tangerang    

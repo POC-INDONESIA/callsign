@@ -1,4 +1,4 @@
 # OC62FCL
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/2/4/024ad2e0f10e9d9f1697dfc35cb3d225.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/7/2/172ad8a8d781d78e918e4f2813125859.jpg)    
 Nama: SAEPUDIN    
 Domisili:     

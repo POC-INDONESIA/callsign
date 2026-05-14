@@ -1,4 +1,4 @@
 # OC62GEV
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/d/8/2d832f2e8fc9fd3b17dde6ae8a396127.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/2/8/d28e6bee3002025b1fd459726c910cdb.jpg)    
 Nama: Abudin    
 Domisili: Kabupaten Tangerang    
