@@ -1,4 +1,4 @@
 # OC62WFK
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/d/6/ed6684dcff577b360c8b21687de72322.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/9/d/f9dee90bd2629f12897f18f337c8e721.jpg)    
 Nama: PUTRA RUMBAI (EDI ZUSRI)    
 Domisili: Kota Pekanbaru    

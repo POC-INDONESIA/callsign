@@ -1,4 +1,4 @@
 # OC62JAK
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/d/0/fd0b0e36ee99246dc556266440fc49ef.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/5/e/55ec515147d00fc59f2de04b06e7087c.jpg)    
 Nama: Samsi Pudihang    
-Domisili: KOTA ADM. JAKARTA UTARA    
+Domisili: Kota Administrasi Jakarta Utara     

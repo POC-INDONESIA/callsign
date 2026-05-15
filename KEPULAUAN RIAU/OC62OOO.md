@@ -1,4 +1,4 @@
 # OC62OOO
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/e/5/fe5396ef6e7d7e652eaa6d993f87b061.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/7/687acc8f6e9c1a8bc76e100b6eb7f9b4.jpg)    
 Nama: Jo Leno    
 Domisili: Kota Batam    
