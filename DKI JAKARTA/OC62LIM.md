@@ -1,4 +1,4 @@
 # OC62LIM
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/6/5/e65b2464ced48381ca5cd6becc75be46.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/d/3/ed384c5d096a2192bc7ad6134b8f6335.jpg)    
 Nama: Kamal    
-Domisili: KOTA ADM. JAKARTA BARAT    
+Domisili: Kota Administrasi Jakarta Barat    

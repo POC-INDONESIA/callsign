@@ -1,4 +1,4 @@
 # OC62YFZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/2/0/420326d64a94761687629ee3cb212b11.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/9/0/590440cf3b57f825630f0505b6781583.jpg)    
 Nama: RIKI RIKARDO    
 Domisili: Kabupaten Solok    

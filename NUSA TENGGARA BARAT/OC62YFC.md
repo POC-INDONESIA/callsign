@@ -1,4 +1,4 @@
 # OC62YFC
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/b/7/8b79f843e2c467b669d7f59b953a53f4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/4/a/b4aba0a85ffa9a9790b64bcd2d6ae36b.jpg)    
 Nama: SUNARDIN ABDURRAHMAN    
 Domisili: Kabupaten Sumbawa    

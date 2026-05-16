@@ -1,4 +1,4 @@
 # OC62ZEU
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/0/3/103568909a544ad7c07a53d557b2bc80.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/5/1/b5120205e1574a79001a9783112bf8e4.jpg)    
 Nama: Si Rudy    
 Domisili: Kabupaten Tangerang    

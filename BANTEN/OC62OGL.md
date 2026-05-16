@@ -1,4 +1,4 @@
 # OC62OGL
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/9/7/9974948057dd87c213925d028219c37a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/f/5/9f53c70366216a0a753085bb075fe946.jpg)    
 Nama: Firman.N    
 Domisili: Kota Tangerang Selatan    
