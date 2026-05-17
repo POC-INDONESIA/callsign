@@ -1,4 +1,4 @@
 # OC62BGX
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/e/d/8ed15138527e599db7796f10a17d0b6f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/b/bab7780ab91bf7418eea4da0bb51b469.jpg)    
 Nama: SYAIFUL RAMADHAN    
 Domisili: Kabupaten Padang Pariaman    

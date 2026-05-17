@@ -1,4 +1,4 @@
 # OC62OEW
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/6/5/06571f60b1f595e07fcfaece8a22626a.jpg)    
-Nama: Jema lawang    
-Domisili: KAB. LAMPUNG TIMUR    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/3/e/f3eec8fbe0d8b28f86494002d7b2ca5e.jpg)    
+Nama: M WILDAN    
+Domisili: Kabupaten Lampung Timur    

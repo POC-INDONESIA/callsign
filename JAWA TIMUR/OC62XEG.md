@@ -1,4 +1,4 @@
 # OC62XEG
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/4/c/14cd60e5d23507accd8e219cba2d8947.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/1/f/d1fa4c3570842e537136735a3e37d1ab.jpg)    
 Nama: Febrike Regita Koyima Hasan    
 Domisili: KAB. TULUNGAGUNG    

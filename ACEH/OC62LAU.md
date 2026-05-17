@@ -1,4 +1,4 @@
 # OC62LAU
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/c/3/fc3cb10f78842572db9569f062c84492.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/1/5/315cf3055501922088418b72d5475819.jpg)    
 Nama: SUHENDRA AR    
 Domisili: Kabupaten Aceh Utara    

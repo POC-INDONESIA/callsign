@@ -1,4 +1,4 @@
 # OC62ABO
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/6/9/b69ad81ef7493001c5e225bbf30a91dc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/7/c/27c4884dc37bb3dcfe607a0f2141aea6.jpg)    
 Nama: ahmad mawardi    
 Domisili: Kota Mataram    

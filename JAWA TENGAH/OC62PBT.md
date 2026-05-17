@@ -1,4 +1,4 @@
 # OC62PBT
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/3/9/7390f34de1c0015568b50808f527feb8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/7/7/277b1aa4a05afb34d0634dba86c541f4.jpg)    
 Nama: Sapto Andy Azis    
 Domisili: Kabupaten Magelang    

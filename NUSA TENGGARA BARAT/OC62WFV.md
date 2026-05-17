@@ -1,4 +1,4 @@
 # OC62WFV
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/8/e/d8ed6585ea6d1eb4037fa5629f3edde5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/6/d/86d83f6cf6d09576d43155972dfd977c.jpg)    
 Nama: AMRIL    
 Domisili: Kota Mataram    
