@@ -1,4 +1,4 @@
 # OC62SBE
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/3/0/33094b11cd91f1aa2067e224f4ecc040.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/6/2/5626858ffc385be1cfed894f5e0412a1.jpg)    
 Nama: Nuryanto    
-Domisili: KOTA TANGERANG    
+Domisili: Kota Tangerang    

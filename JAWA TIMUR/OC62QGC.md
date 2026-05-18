@@ -1,4 +1,4 @@
 # OC62QGC
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/4/d/14d0823a4efd0218bc85d944bcaa1c6b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/0/5/c05353eed1594f8c86930631e01b4ecf.jpg)    
 Nama: M. Kusnan    
 Domisili: Kabupaten Sidoarjo    
