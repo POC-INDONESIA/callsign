@@ -1,4 +1,4 @@
 # OC62ROG
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/e/4/5e4ee6809ac6d994c18011000c7f364e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/e/a/3ea91384409835363954281f52f29375.jpg)    
 Nama: LEE DONG CHUN    
 Domisili: Kabupaten Blitar    

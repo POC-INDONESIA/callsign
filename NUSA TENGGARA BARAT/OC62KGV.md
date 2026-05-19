@@ -1,4 +1,4 @@
 # OC62KGV
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/2/0/a201f0ab044dd7f31d420b05469a98b3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/8/f/48f2cf9599ef4e304d66aa691f57279e.jpg)    
 Nama: M.baehaki    
 Domisili: Kabupaten Lombok Barat    

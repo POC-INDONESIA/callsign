@@ -1,4 +1,4 @@
 # OC62MDS
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/e/5/0e531cc12092c30a8457679e4eef8821.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/9/4/0945054cfdd1eca4c68d9d8a53473586.jpg)    
 Nama: RUDI HARTONO HASAN    
 Domisili: Kabupaten Tulungagung    

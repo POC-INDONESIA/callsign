@@ -1,4 +1,4 @@
 # OC62LEJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/4/b/84b2f3c5075b6fe0ddee2855d18e23fa.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/9/f/79f4508528862fecf6dac2b0e0e068fc.jpg)    
 Nama: Dwi Asrori    
 Domisili: Kabupaten Tulungagung    

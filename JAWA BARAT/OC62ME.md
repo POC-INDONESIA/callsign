@@ -1,4 +1,4 @@
 # OC62ME
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/c/5/9c53bc950d6452eabc1b29a4a6fa1c01.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/9/b/89b7b7b96cf2f6abda2348d97e9ab262.jpg)    
 Nama: ​ماس إيكو    
-Domisili: KOTA CIREBON    
+Domisili: Kota Cirebon    
