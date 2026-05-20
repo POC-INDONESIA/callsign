@@ -1,4 +1,4 @@
 # OC62DGZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/5/5/c551cb5fb1226c8084f5e9d727c47b3c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/0/5/7051afc7581296791d32752885e65edd.jpg)    
 Nama: Ahmad Septianur    
 Domisili: Kabupaten Sleman    

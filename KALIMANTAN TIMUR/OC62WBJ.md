@@ -1,4 +1,4 @@
 # OC62WBJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/f/5/5f59a3db063b086e48b91614a907d7bf.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/3/e/e3e9e4e6470e2d1eebdf01c78c83c76b.jpg)    
 Nama: Sonalia    
 Domisili: KAB. KUTAI TIMUR    

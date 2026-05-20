@@ -1,4 +1,4 @@
 # OC62EQO
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/d/e/cdedb6b67578746c9f2a04faccf1ed1f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/e/8/0e83d8ca30c5e7f8429a389bacb94e18.jpg)    
 Nama: Sigit Sujatmiko    
 Domisili: KAB. TRENGGALEK    
