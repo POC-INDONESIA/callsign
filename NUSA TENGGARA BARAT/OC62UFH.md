@@ -1,4 +1,4 @@
 # OC62UFH
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/b/8/2b8561d65f59a76507e205f3ab399e65.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/e/2/9e269a38e4d6225fc3f190e0e7fc4890.jpg)    
 Nama: Awaluddin    
 Domisili: KOTA MATARAM    
