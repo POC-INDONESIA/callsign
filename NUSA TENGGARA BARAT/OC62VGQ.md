@@ -1,4 +1,4 @@
 # OC62VGQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/a/1/1a1bdf29cafeb7af8770343197bddbe9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/6/6/7664f5c479b6ce6bfbd7621e2505011f.jpg)    
 Nama: Marwi    
 Domisili: Kabupaten Lombok Tengah    

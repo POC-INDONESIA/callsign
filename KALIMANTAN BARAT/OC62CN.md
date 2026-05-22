@@ -1,4 +1,4 @@
 # OC62CN
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/f/1/3f12ec0e7c7ed5f589f60f0f86aef21e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/9/8/5982da7380aa39fd1cd9051179adf8aa.jpg)    
 Nama: CEPARUDIN    
 Domisili: Kabupaten Kubu Raya    

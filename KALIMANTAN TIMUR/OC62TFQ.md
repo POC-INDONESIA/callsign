@@ -1,4 +1,4 @@
 # OC62TFQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/9/3/593d50c2f3dce1f43acbc2ccebe1dc0a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/0/3/00383208f49d2a4296c3d092595e6bb4.jpg)    
 Nama: Agus Lestariyono    
 Domisili: KOTA PASURUAN    
