@@ -1,4 +1,4 @@
 # OC62RCE
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/9/c/a9c1f6f3122cd18b48f657433a6f8e74.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/0/c/00cff2fd4035bb6d209c03e1ea7f7c22.jpg)    
 Nama: DENI    
 Domisili: KAB. GRESIK    

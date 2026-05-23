@@ -1,4 +1,4 @@
 # OC62VGH
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/9/5/f95f6dbad1fb49f91eeca8295c1208fe.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/5/ca56c6d78fce73b4a8b517f2aec9403d.jpg)    
 Nama: Marten Toding    
 Domisili: Kabupaten Jayawijaya    

@@ -1,4 +1,4 @@
 # OC62TGX
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/6/d/46d6f4b78e4cd7b40057ee2467629006.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/f/8/bf88b3ac47ac784b196be1b423c9960b.jpg)    
 Nama: Raymond Palandi    
 Domisili: Kota Tomohon    

@@ -1,4 +1,4 @@
 # OC62STK
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/8/2385a602938f204a67e226eade6d0dc5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/f/0/3f05d9e523cdb756d18eda4533af39a5.jpg)    
 Nama: NOVA RAFA    
 Domisili: Kota Madiun    
