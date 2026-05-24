@@ -1,4 +1,4 @@
 # OC62ACM
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/0/a/d0a6729db610c6272ffc40e42e92bee7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/b/5/3b53e4aa42701333eadc667b97ac4c28.jpg)    
 Nama: MARDIUS    
 Domisili: Kota Batam    
