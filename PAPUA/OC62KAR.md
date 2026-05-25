@@ -1,4 +1,4 @@
 # OC62KAR
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/6/7/d671cf1dc456eebb1cef1cc8261a42b6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/b/e/9bea27e8a03aa801ba2c472f9f23ca59.jpg)    
 Nama: EFRAIM MOWENDU    
-Domisili: KOTA JAYAPURA    
+Domisili: Kota Jayapura    

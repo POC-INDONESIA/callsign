@@ -1,4 +1,4 @@
 # OC62NFK
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/7/e/f7e75d98787ce55799d2563b9310b4d4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/5/c/d5c8dcece4f621704e963b69e655a80b.jpg)    
 Nama: Dede Satra    
-Domisili: KAB. TANGERANG    
+Domisili: Kabupaten Tangerang    

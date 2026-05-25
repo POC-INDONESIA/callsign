@@ -1,4 +1,4 @@
 # OC62MEH
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/9/d/39d6eab2b3dc6d87586ee3507d3c5c48.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/d/cad93ff1dc9bd09c97c258c8f8198ac8.jpg)    
 Nama: Rukiah Rossana    
-Domisili: KOTA TANGERANG    
+Domisili: Kota Tangerang    

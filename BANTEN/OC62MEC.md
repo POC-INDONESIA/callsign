@@ -1,4 +1,4 @@
 # OC62MEC
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/0/4/d04dbcaba512027e8b6d66b727da4def.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/3/f/03f7d5bccf6f4696ec6a35ca56bae9ca.jpg)    
 Nama: Winarti    
-Domisili: KOTA TANGERANG    
+Domisili: Kota Tangerang    
