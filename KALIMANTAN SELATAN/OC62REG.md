@@ -1,4 +1,4 @@
 # OC62REG
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/4/7/747fe413e62af68b5b1a17f9527d4b57.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/c/0/bc00166a3053670aa8362dac0634ca65.jpg)    
 Nama: AGUS FANANY    
 Domisili: Kota Banjarmasin    

@@ -1,4 +1,4 @@
 # OC62YSR
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/c/7/bc76cb3510db603c02fc282a688cd562.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/6/c/26cd824332c514a94e7854d7bdc478ed.jpg)    
 Nama: Yasir    
 Domisili: Kabupaten Aceh Besar    
