@@ -1,4 +1,4 @@
 # OC62EGX
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/0/a/a0a78e66d7ec759ae2b6a62bf57800b7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/c/d/6cd088022b4120cc24398375d6c67bf5.jpg)    
 Nama: Reza Nurhidayat    
 Domisili: Kabupaten Ogan Komering Ulu    

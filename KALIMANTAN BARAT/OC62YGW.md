@@ -1,4 +1,4 @@
 # OC62YGW
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/6/7/c67e4ec967956786026ee61c293e2c67.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/3/8/538a731aa63454ac9bf505ce89dae0f4.jpg)    
 Nama: MUJIMAN    
 Domisili: Kabupaten Sekadau    

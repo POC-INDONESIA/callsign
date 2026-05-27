@@ -1,4 +1,4 @@
 # OC62BAQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/b/c/4bc5eff010e285faeee3267145ecca91.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/c/5/3c529916c914592f3baa4522b0295917.jpg)    
 Nama: Bagus Ananto, SE    
 Domisili: Kabupaten Ogan Komering Ulu    
