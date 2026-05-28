@@ -1,4 +1,4 @@
 # OC62SGD
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/9/d/b9d99df610b81d18fdcac804c2f06dd9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/3/4/9349ba74f353fa294c60c287853f604b.jpg)    
 Nama: Rohaini    
 Domisili: Kabupaten Lombok Barat    

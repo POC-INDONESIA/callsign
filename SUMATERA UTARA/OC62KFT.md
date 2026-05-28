@@ -1,4 +1,4 @@
 # OC62KFT
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/d/68d5c23278b74eb6f1aa4d99d15bca2d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/a/72a2301ceb9ecee463de07abc653fd4f.jpg)    
 Nama: Sabungan Simanullang M. Psi    
-Domisili: KOTA MEDAN    
+Domisili: Kota Medan    

@@ -1,4 +1,4 @@
 # OC62CHD
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/5/f/c5f0ec8f583fa82caecb1f69ba1ae7c9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/8/8/9881b9e37e400f2c5ea24d8a6d45d41a.jpg)    
 Nama: Silverio R. L. Aji Sampurno    
 Domisili: Kabupaten Sleman    

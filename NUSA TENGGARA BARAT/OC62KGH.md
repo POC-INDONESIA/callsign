@@ -1,4 +1,4 @@
 # OC62KGH
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/2/9/e297e30c5a9b452ad65b519bb383afa5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/8/c/48c4f3ce6c458e4e071439c62d127ee7.jpg)    
 Nama: Jumawardi    
 Domisili: Kota Mataram    

@@ -1,4 +1,4 @@
 # OC62ZGR
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/b/4/eb4b041c5fefae6f08ea12b906dc6d7d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/0/7/1070e38ff20fb5fdece854ffdc4070d9.jpg)    
 Nama: Ahmad syaibani    
 Domisili: Kabupaten Sekadau    
