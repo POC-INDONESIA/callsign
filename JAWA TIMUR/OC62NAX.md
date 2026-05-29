@@ -1,4 +1,4 @@
 # OC62NAX
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/7/6/376c4af24a413ab0ba0711ec9cdb9179.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/9/2/0923e910612af326aefacddad6e7c768.jpg)    
 Nama: Jimmy    
-Domisili: KOTA SURABAYA    
+Domisili: Kota Surabaya    

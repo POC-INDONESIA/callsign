@@ -1,4 +1,4 @@
 # OC62DVB
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/d/e/7deaa99abcac0819d53240b5a4ad952c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/a/c/3acc818437bae310b6c535addafa0da9.jpg)    
 Nama: M Zainuri    
 Domisili: KAB. SIDOARJO    

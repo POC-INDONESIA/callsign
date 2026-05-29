@@ -1,4 +1,4 @@
 # OC62JGD
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/1/d/81d8f2e76500a9fba5f1550ee51b0914.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/9/4/9945396941d7c35ea639297274bc3d96.jpg)    
 Nama: Nur Hidayat     
 Domisili: Kabupaten Ogan Komering Ulu Timu    

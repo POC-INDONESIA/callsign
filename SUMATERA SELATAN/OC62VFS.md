@@ -1,4 +1,4 @@
 # OC62VFS
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/4/0/44023ebb1883971bd1f1b72493157baa.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/1/7/a1750b14bbf6775e7d807c7d324a46fb.jpg)    
 Nama: Teuku martunis    
 Domisili: Kota Palembang    

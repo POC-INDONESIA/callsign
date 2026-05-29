@@ -1,4 +1,4 @@
 # OC62CHV
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/f/8/3f88950f22f18dea74ec07a6fbd35abe.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/1/8/8181a772ec0bad35cbec224b4e41521a.jpg)    
 Nama: Hendry Yonathan    
 Domisili: Kota Administrasi Jakarta Barat    
