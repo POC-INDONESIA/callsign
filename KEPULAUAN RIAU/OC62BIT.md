@@ -1,4 +1,4 @@
 # OC62BIT
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/a/6/da69aa48eceb641d89b0a748122b1c8c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/b/b/0bb1a2cd21a1659cb8d7b333063df223.jpg)    
 Nama: Agus.S    
 Domisili: Kota Batam    

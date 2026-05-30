@@ -1,4 +1,4 @@
 # OC62LBK
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/d/f/ddf9cc87529e7fd77d0347a3b19efee1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/6/b7693c222166b01fbdd2563c350ec36d.jpg)    
 Nama: I WAYAN SETIAWAN GIRI    
 Domisili:     

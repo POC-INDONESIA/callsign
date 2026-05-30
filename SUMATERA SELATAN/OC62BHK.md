@@ -1,4 +1,4 @@
 # OC62BHK
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/5/2/a5220e4dd4d8ae36641d9af60498d56f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/9/5/f956ffc972ea3941b88a38ff5f3097c0.jpg)    
 Nama: SUYATNO    
 Domisili: Kabupaten Musi Rawas    

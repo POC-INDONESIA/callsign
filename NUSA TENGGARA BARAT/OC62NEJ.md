@@ -1,4 +1,4 @@
 # OC62NEJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/f/3/3f39eeb8fd302d024e0d6ca3ed5ddaf1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/5/2/5526ba734742795e04d91084f7ef2498.jpg)    
 Nama: I KETUT SUKASADA    
 Domisili: KOTA MATARAM    
