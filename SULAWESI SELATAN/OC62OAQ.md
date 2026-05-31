@@ -1,4 +1,4 @@
 # OC62OAQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/4/2/3422a88ed7c64876fa0c43a19e2a60f5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/3/9/139bb51cb7e851f67f3883203872cefa.jpg)    
 Nama: FAIZAL BAHUDDIN    
 Domisili: KOTA PARE PARE    

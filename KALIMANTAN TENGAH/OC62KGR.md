@@ -1,4 +1,4 @@
 # OC62KGR
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/2/0/c2063be08f99c9c983f36a2e44418e46.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/7/2f7a951931d8b4610ce8da3f32a35078.jpg)    
 Nama: Putra Djaya Armansyah    
 Domisili: Kabupaten Kotawaringin Barat    

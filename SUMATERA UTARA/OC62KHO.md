@@ -1,3 +1,3 @@
 # OC62KHO
 Nama: Eddie    
-Domisili: KOTA MEDAN    
+Domisili: Kota Medan    

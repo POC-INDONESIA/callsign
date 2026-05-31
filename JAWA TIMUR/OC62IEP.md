@@ -1,4 +1,4 @@
 # OC62IEP
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/f/b/cfb896994b4125191bb80af0d1ebc5b2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/7/9/47994fa6279ccd30fd456c8af5a96ceb.jpg)    
 Nama: ANGGA PUTRO BUDI WIBOWO    
 Domisili: KAB. TULUNGAGUNG    

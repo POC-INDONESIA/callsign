@@ -1,4 +1,4 @@
 # OC62FEG
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/6/7/76751efdc9e76e3354863eedf23c3d55.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/e/1/9e14967fff5c8b2494790e3029d1322c.jpg)    
 Nama: Sukamto     
 Domisili: Kabupaten Sukoharjo    

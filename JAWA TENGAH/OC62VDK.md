@@ -1,4 +1,4 @@
 # OC62VDK
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/9/7/29730e31630db4a4683cbf699b0ce58a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/8/d/88d4647a928eb7ba755e7014353bb62a.jpg)    
 Nama: JOKO SUWITO    
 Domisili: Kabupaten Klaten    

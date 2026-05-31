@@ -1,4 +1,4 @@
 # OC62AAW
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/8/b/88b2b4607d180aa0a435ea120f4d9963.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/0/6/f06230df1e6aeb6dd7504bb549c313ae.jpg)    
 Nama: anton agus widodo    
 Domisili: Kota Administrasi Jakarta Utara     

@@ -1,4 +1,4 @@
 # OC62WFD
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/7/f/97f7141e9795d68d7386f1eba77bf4f3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/e/b/1eb3f68154216fa150efdda5ca06f126.jpg)    
 Nama: AWALUDIN    
 Domisili: KAB. SOLOK    

@@ -1,4 +1,4 @@
 # OC62NUG
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/e/a/3ea55d1929d38b886e96b0cbfb05d7fa.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/4/2/e420f69c97fdca31f195c8dfc8142b82.jpg)    
 Nama: NUGROHO HAPPY K    
 Domisili: Kabupaten Banjarnegara    
