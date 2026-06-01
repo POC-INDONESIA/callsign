@@ -1,4 +1,4 @@
 # OC62LBE
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/3/0/d30385454108521b5bec165c74412d87.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/1/2f188a8a52aca03c46b0bc935b74547c.jpg)    
 Nama: Zenal Arifin    
-Domisili: KAB. TANGERANG    
+Domisili: Kabupaten Tangerang    

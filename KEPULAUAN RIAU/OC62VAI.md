@@ -1,4 +1,4 @@
 # OC62VAI
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/e/d/fedaf5570b39d59c0fcaedd4bb4e4110.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/c/2/0c2c88cac48211c2132daa99df520036.jpg)    
 Nama: Iqbal Arifuddin    
 Domisili: Kota Tanjung Pinang    

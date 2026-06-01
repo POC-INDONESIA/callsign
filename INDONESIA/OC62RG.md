@@ -1,4 +1,4 @@
 # OC62RG
 ![Foto](https://portal.pocindonesia.web.id//data/foto/f/7/3/f734b7c042380b93f0b412149637990e.jpg)    
 Nama: RANGGA PRATAMA PUTRA    
-Domisili: Kota Parepare    
+Domisili: Kota Administrasi Jakarta Barat    
