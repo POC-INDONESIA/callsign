@@ -1,4 +1,4 @@
 # OC62GFV
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/4/d/24daa7a1e1811679a398e7aec9283678.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/6/3/e63764bc925754958af079182e72a6a7.jpg)    
 Nama: SOLEH SYAMSUDIN    
 Domisili: Kota Surabaya    
