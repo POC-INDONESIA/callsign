@@ -1,4 +1,4 @@
 # OC62XXO
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/b/b/5bb1ea86fec2e169af942a063943d102.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/b/3/9b3fde9ff42fa50750d9cc447b1145df.jpg)    
 Nama: SUHARNO     
 Domisili: Kota Batam    
