@@ -1,4 +1,4 @@
 # OC62GDS
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/6/4/d6431ad582ff652b45a3e32e55de304f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/f/5/af587b3aaad3105908fb09e7a9d2eaa4.jpg)    
 Nama: SUGIYANTI    
 Domisili: KAB. MUSI RAWAS    
