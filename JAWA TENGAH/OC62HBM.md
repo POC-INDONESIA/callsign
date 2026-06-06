@@ -1,3 +1,3 @@
 # OC62HBM
 Nama: Handoko    
-Domisili: KAB. SUKOHARJO    
+Domisili: Kabupaten Sukoharjo    
