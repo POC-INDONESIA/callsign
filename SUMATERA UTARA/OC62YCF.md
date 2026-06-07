@@ -1,4 +1,4 @@
 # OC62YCF
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/5/3/a531f278b5f1977178fc890c2c5c71f1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/c/c/2cc518cfbae8287936df9c738e99591d.jpg)    
 Nama: Ilhamsyah    
 Domisili: Kota Medan    

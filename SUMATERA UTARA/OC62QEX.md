@@ -1,4 +1,4 @@
 # OC62QEX
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/b/1/6b13d82566c1e0c93ebae681c0ad06da.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/9/239a92369f705242d6abdf77900fce6c.jpg)    
 Nama: Surianto    
 Domisili: KAB. LABUHANBATU SELATAN    
