@@ -1,4 +1,4 @@
 # OC62BSX
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/a/68a866eaa0b95febddf056bdccc192f2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/8/8/588e1ed46bf4457ebd7274139d5afe12.jpg)    
 Nama: Firdaus Moechtar    
-Domisili: KAB. TANGERANG    
+Domisili: Kabupaten Tangerang    

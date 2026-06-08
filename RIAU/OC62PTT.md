@@ -1,4 +1,4 @@
 # OC62PTT
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/6/7/267c41b9274d0788b9af9858c146adb9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/e/0/be058069de637e106c43e4cc2046af3d.jpg)    
 Nama: Iqbal Muhammad Ridho    
 Domisili: Kota Pekanbaru    
