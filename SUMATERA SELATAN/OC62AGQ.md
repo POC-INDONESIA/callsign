@@ -1,4 +1,4 @@
 # OC62AGQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/5/2/852c7511e7a9034218335e60e4ea4531.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/3/d/c3ddf48220304d3fa701781a532133ab.jpg)    
 Nama: SANJOYO    
 Domisili: Kabupaten Musi Banyuasin    

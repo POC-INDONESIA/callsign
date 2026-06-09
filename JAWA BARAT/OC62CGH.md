@@ -1,4 +1,4 @@
 # OC62CGH
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/5/f/95f6872b7eb47df6d5ed15571c87d54c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/2/5/8253fc844d9e741d23cdbda411e67813.jpg)    
 Nama: SUBUR    
 Domisili: Kabupaten Garut    

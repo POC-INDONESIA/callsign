@@ -1,4 +1,4 @@
 # OC62IEZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/9/6/096170c5941e5542b135ef0a998d64ea.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/6/2/3624de5e837104ad2b46a575b824dd29.jpg)    
 Nama: Darwin    
 Domisili: Kota Tangerang    

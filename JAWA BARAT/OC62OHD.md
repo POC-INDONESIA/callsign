@@ -1,4 +1,4 @@
 # OC62OHD
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/9/4/6943a2a2a1e4357845f4c6b4af96a717.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/a/d/7ad45b57b21f8860ad1c77b4f1081f0a.jpg)    
 Nama: Budi Kurniawan    
 Domisili: Kabupaten Cianjur    
