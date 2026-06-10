@@ -1,4 +1,4 @@
 # OC62DHZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/5/5/555554a987dfc0d6cbfc153dfa990826.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/1/c/b1c12024b830784e4672224ceac3671e.jpg)    
 Nama: Wagirin    
 Domisili: Kota Medan    
