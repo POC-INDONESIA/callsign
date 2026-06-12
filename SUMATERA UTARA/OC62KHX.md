@@ -1,4 +1,4 @@
 # OC62KHX
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/3/3/e33e422b960e855b99e199e66db447c2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/4/0/a40ffc6e67c466333b110ad0c3f4e0a2.jpg)    
 Nama: Kadariadi    
 Domisili: Kota Medan    

@@ -1,4 +1,4 @@
 # OC62IDA
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/d/1/3d1d5a17a4ba50e1ea49a9fb71d9f2d7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/9/23978b31e7167c021f7e121abed656c8.jpg)    
 Nama: PARIDAH    
 Domisili: Kabupaten Sidenreng Rappang    

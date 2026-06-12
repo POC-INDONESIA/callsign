@@ -1,4 +1,4 @@
 # OC62XFD
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/d/b/3db5179fc28a73e95c8ec7fc7eef8704.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/8/b/48b7dd3562ec18c91ade4ba6245e6a1f.jpg)    
 Nama: Eko wijiwaluyo    
-Domisili: KAB. BANYUASIN    
+Domisili: Kabupaten Banyuasin    

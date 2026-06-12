@@ -1,4 +1,4 @@
 # OC62QEG
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/8/0/1801401775acd0ef6f96dfd54d7f07b0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/a/7/7a7a6337a96a5e05e890230763047222.jpg)    
 Nama: Eka Kurniawan    
 Domisili: KAB. BANYUASIN    
