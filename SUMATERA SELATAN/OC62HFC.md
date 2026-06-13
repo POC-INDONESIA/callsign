@@ -1,4 +1,4 @@
 # OC62HFC
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/9/4/394cf19a9659da26ac24a308b5ffe5fc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/8/c/e8cedff8644c35061f60a097514df9bc.jpg)    
 Nama: PIRLI    
 Domisili: KAB. MUSI RAWAS    
