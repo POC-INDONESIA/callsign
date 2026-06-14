@@ -1,3 +1,3 @@
 # OC62XAM
 Nama: DISBIN    
-Domisili: KAB. KUTAI KARTANEGARA    
+Domisili: Kabupaten Kutai Kartanegara    

@@ -1,3 +1,3 @@
 # OC62ATA
 Nama: AGUS SANTOSO    
-Domisili: Kabupaten Tebo    
+Domisili: Kabupaten Merangin    
