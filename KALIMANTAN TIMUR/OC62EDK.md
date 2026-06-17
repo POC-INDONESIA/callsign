@@ -1,3 +1,3 @@
 # OC62EDK
 Nama: ALIMUDDIN    
-Domisili: KAB. KUTAI KARTANEGARA    
+Domisili: Kabupaten Kutai Kartanegara    

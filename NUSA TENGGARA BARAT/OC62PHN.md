@@ -1,4 +1,4 @@
 # OC62PHN
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/3/e/73e0e20c5bf729715532d5132a68f32a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/0/1/601bc3c48dc05a8f2e1c1f98a7138ec0.jpg)    
 Nama: Supardan    
 Domisili: Kota Mataram    
