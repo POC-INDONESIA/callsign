@@ -1,4 +1,4 @@
 # OC62OHV
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/b/2/5b245e8b19986392a9c0a592380c8d23.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/c/c/9cc075000e66482f03845695b946b123.jpg)    
 Nama: T Nazar Ependi    
 Domisili: Kota Medan    

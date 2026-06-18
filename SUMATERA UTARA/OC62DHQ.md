@@ -1,4 +1,4 @@
 # OC62DHQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/4/a/d4af99e2a944614f5fd69ab5195d3211.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/c/2/6c2e168293d07aed2d86587eb55c4eaf.jpg)    
 Nama: Adi Suprianto    
 Domisili: Kabupaten Langkat    

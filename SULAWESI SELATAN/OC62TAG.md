@@ -1,4 +1,4 @@
 # OC62TAG
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/1/0/810935d70ff25b089876d01de21baeda.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/5/4/0542ff73c06bfcae72e7468e1751d0c2.jpg)    
 Nama: JEPRI KUTUBI    
-Domisili:     
+Domisili: Kota Parepare    

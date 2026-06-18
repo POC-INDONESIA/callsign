@@ -1,4 +1,4 @@
 # OC62UBT
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/1/5/315a0f1122818f180f982c5977372c61.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/0/7/2079502800777a629810e443e7622c7c.jpg)    
 Nama: Fajreen Noor    
 Domisili: Kota Sibolga    

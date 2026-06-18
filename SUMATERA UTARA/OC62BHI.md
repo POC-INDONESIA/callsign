@@ -1,4 +1,4 @@
 # OC62BHI
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/1/f/01fad9758328575f08ec4cc155a26631.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/9/b/39bc20da183545ac4b27e47dc1695582.jpg)    
 Nama: Bergiat Sinukaban    
 Domisili: Kota Medan    
