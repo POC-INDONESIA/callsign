@@ -1,4 +1,4 @@
 # OC62FCB
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/0/3/40377088e68d8d15c960dc03f777d4f7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/a/3/8a385e0ca1c0e605d38347f23b4ed98f.jpg)    
 Nama: YADI S    
-Domisili: KAB. KUTAI TIMUR    
+Domisili: Kabupaten Kutai Timur    
