@@ -1,4 +1,4 @@
 # OC62ZGC
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/8/6/886c4980cb2dd3e6c14946444deb7424.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/e/0/3e0c62e4c243795e6e7ee29defb3fb99.jpg)    
 Nama: SAEDY SYAHBUDIN    
 Domisili: Kabupaten Kubu Raya    

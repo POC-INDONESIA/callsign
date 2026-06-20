@@ -1,4 +1,4 @@
 # OC62SDT
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/e/6/ce682decc38c22bb4a94ad327069e88d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/f/2/df27d98d5eb1dd065ed89a135a6af2bd.jpg)    
 Nama: RAMLI    
 Domisili:     
