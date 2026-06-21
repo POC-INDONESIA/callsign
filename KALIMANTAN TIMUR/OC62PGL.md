@@ -1,4 +1,4 @@
 # OC62PGL
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/5/3/55300059902c77ce8d267a2bae82fd23.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/c/3/fc344d052814aa35a5157a21ebeb9276.jpg)    
 Nama: Ary Bowo    
 Domisili: Kota Samarinda    
