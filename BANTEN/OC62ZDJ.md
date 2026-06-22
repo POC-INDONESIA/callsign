@@ -1,4 +1,4 @@
 # OC62ZDJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/9/6890b6c1b371a3e48571aec46fdebd05.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/2/8/e282e2a0da4cba00918d13046b70964e.jpg)    
 Nama: Dadang    
 Domisili: Kabupaten Tangerang    

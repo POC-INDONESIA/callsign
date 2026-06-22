@@ -1,4 +1,4 @@
 # OC62DSG
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/c/c/fcc0c97403891a0868a963c0a0582e42.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/6/3/363e87b3996cd2418d9c888ef6860dc8.jpg)    
 Nama: Dian Socrates Ginting    
-Domisili: KOTA MEDAN    
+Domisili: Kota Medan    

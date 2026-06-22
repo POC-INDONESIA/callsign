@@ -1,4 +1,4 @@
 # OC62THJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/b/9/9b9ae23b56c4955239d9d70d21744d24.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/6/6/066e21cdd633f67a44dd158e63a22ff8.jpg)    
 Nama: Agus Syah Fauzul Fitrian    
 Domisili: Kabupaten Langkat    

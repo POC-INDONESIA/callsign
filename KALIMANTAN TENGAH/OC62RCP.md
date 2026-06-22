@@ -1,4 +1,4 @@
 # OC62RCP
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/f/caf547c89e9a1b52a24eb22027f6724e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/e/9/3e9992a69b400009c61222b1fcb2ea1e.jpg)    
 Nama: M. TARMIZI MR    
-Domisili: KAB. KOTAWARINGIN BARAT    
+Domisili: Kabupaten Kotawaringin Barat    

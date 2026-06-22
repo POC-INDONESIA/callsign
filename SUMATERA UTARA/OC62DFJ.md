@@ -1,4 +1,4 @@
 # OC62DFJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/0/720ff5edae5dc7c8fa3944c61c2ceca6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/8/3/a8379193e17484e804edef2b256ba1aa.jpg)    
 Nama: Eko Yudi Purwono    
-Domisili: KAB. DELI SERDANG    
+Domisili: Kabupaten Deli Serdang    

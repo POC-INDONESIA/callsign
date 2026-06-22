@@ -1,4 +1,4 @@
 # OC62WHK
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/d/e/bded94210dcede8f360169bc6f66f3eb.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/8/6/28638cd82ec662eebc29e03205701a07.jpg)    
 Nama: SAKIF MERTOSONO    
 Domisili: Kota Manado    
