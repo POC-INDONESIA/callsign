@@ -1,4 +1,4 @@
 # OC62WEP
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/c/4/cc406d182ff79778a7a7ba7fde6361a3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/a/6/aa6df2c828ea05106888206c56ee8af9.jpg)    
 Nama: Candra Kadir    
-Domisili: KAB. TORAJA UTARA    
+Domisili: Kabupaten Toraja Utara    

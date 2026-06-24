@@ -1,0 +1,4 @@
+# OC62XHK
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/e/f/7efd893f5a44a933e3558dd08db28b78.jpg)    
+Nama: SAMIN    
+Domisili: Kabupaten Lombok Barat    
