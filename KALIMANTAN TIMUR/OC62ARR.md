@@ -1,4 +1,4 @@
 # OC62ARR
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/6/9/1690c9243abc91641885e4739e9b2554.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/c/8/4c89e9c1bf564112016a27b8a71adc3e.jpg)    
 Nama: ANDRIK RIZKI ROHMADANI    
 Domisili: Kabupaten Kutai Kartanegara    
