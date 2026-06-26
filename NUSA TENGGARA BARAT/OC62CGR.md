@@ -1,4 +1,4 @@
 # OC62CGR
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/f/6/ff63f96f0e919b99dd2580df51737156.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/6/7/3672c2013732aacb870aff9477c1cef6.jpg)    
 Nama: Ayub Piadi    
 Domisili: Kabupaten Lombok Tengah    

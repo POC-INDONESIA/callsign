@@ -1,4 +1,4 @@
 # OC62ASU
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/d/5/9d5c17126a96b194763705b2273effbe.jpg)    
-Nama: S Prasetya Wahyudi    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/4/5/245a202b8e868fc8646897e02ec90d65.jpg)    
+Nama: Prasetya    
 Domisili: Kota Semarang    
