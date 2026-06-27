@@ -1,3 +1,3 @@
 # OC62XDQ
-Nama: Ahmad Safira    
-Domisili: KAB. HULU SUNGAI TENGAH    
+Nama: Ahmad Syafiq    
+Domisili: Kabupaten Hulu Sungai Tengah    

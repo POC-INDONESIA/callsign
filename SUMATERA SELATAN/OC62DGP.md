@@ -1,4 +1,4 @@
 # OC62DGP
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/2/f/62febd3a8f9fa9edc20cfbef7c26d6cc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/7/e/a7ee35741983125042f9fd765c366f48.jpg)    
 Nama: SUPARMONO    
 Domisili: Kabupaten Musi Rawas    

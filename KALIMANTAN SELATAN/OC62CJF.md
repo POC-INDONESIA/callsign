@@ -1,4 +1,4 @@
 # OC62CJF
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/c/7/2c7af5d835799106e994074b4db74c8d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/c/2/cc257220b64ba0f17a17d9a571929bee.jpg)    
 Nama: Abdurrahim    
 Domisili: Kota Banjarbaru    

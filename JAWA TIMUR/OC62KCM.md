@@ -1,3 +1,3 @@
 # OC62KCM
 Nama: DONNY KUSUMA WARDHANA    
-Domisili:     
+Domisili: Kota Pasuruan    
