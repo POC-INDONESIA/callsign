@@ -1,4 +1,4 @@
 # OC62VHX
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/b/2/0b222fd789819826d6b94f7f8f0e97fd.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/3/7/13769bb34b3ff867538b27c0c3598bbc.jpg)    
 Nama: A. SINDU WAHONO    
 Domisili: Kota Administrasi Jakarta Timur    
