@@ -1,0 +1,4 @@
+# OC62EJX
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/6/7263fa95ef4086bbbcf76e7b9adb12da.jpg)    
+Nama: SYAMSUDIN MIOLO    
+Domisili: Kota Administrasi Jakarta Timur    
