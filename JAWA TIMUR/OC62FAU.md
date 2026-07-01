@@ -1,4 +1,4 @@
 # OC62FAU
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/2/2/622388347047cba16f4b39ff149408c7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/9/b/59b2562dd8830de0aa49ca108d4ef6e7.jpg)    
 Nama: Aan Herbawono    
 Domisili: KOTA SURABAYA    

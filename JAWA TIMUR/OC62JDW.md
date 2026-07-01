@@ -1,4 +1,4 @@
 # OC62JDW
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/5/6/e56a05cd911e8dbcbde71ec813040a84.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/0/7/407a6586fb93050db4a1f9c47282eb4e.jpg)    
 Nama: Soewanto    
 Domisili: Kota Surabaya    

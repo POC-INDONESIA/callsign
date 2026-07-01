@@ -1,4 +1,4 @@
 # OC62YYY
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/e/e/8eef59b361dcd5c815f32a76d357a230.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/c/d/dcdec105c86e9b729b7f00872f66c6cd.jpg)    
 Nama: Ahmad Sofyan    
 Domisili: Kota Administrasi Jakarta Selatan    

@@ -1,4 +1,4 @@
 # OC62CBI
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/5/b/b5b1b389be367247032c816505a7edd8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/6/9/869b125496433db3d61b51e56193e775.jpg)    
 Nama: WALAN YUDIANA    
 Domisili: Kabupaten Tegal    
