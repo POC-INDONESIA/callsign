@@ -1,4 +1,4 @@
 # OC62GJF
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/5/c/25ca5e5a8a7e31071e79fa91f98232cc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/e/7/5e75615ce74e7c376b794f9fa9c1592c.jpg)    
 Nama: SUPARLAN    
 Domisili: Kabupaten Sekadau    
