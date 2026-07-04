@@ -1,4 +1,4 @@
 # OC62CHZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/7/6/0761ee6b913d096aeb896f2f63a30b25.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/2/5/525c5689fda004c7b08d7720240b21fe.jpg)    
 Nama: Abdul Rozak    
 Domisili: Kota Batam    
