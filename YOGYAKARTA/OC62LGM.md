@@ -1,4 +1,4 @@
 # OC62LGM
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/0/3/9038c236f38e22b4ef71a8b1ab909411.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/e/f/9efd0dbfff59ff0510f332a126d1d853.jpg)    
 Nama: Supardi    
 Domisili: Kabupaten Sleman    

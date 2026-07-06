@@ -1,4 +1,4 @@
 # OC62WDH
 ![Foto](https://portal.pocindonesia.web.id//data/foto/9/e/c/9ec5971e38765c1cc5896df77183430b.jpg)    
 Nama: NANI JUARNI HANS    
-Domisili: KOTA PALOPO    
+Domisili: Kota Palopo    
