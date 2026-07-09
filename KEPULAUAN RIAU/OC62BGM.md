@@ -1,4 +1,4 @@
 # OC62BGM
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/6/f/86fd638ce57bb99874ab244754fa1d2e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/7/ca77b5fe811e8a836d75cee572634942.jpg)    
 Nama: ARYADI    
 Domisili: Kota Batam    
