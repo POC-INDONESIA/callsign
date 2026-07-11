@@ -1,4 +1,4 @@
 # OC62LIM
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/d/3/ed384c5d096a2192bc7ad6134b8f6335.jpg)    
-Nama: Rudy    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/1/4/31413a5ae3624e6e3ad5c3f0b185a646.jpg)    
+Nama: Rudy Lasup    
 Domisili: Kota Administrasi Jakarta Barat    
