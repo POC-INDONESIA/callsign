@@ -1,4 +1,4 @@
 # OC62KJP
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/6/7262ab6fa92be4df5004378b0586b24c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/f/5/cf561e2dbbb87eab7323ddf0259aee50.jpg)    
 Nama: DASRIAL    
 Domisili: Kota Payakumbuh    

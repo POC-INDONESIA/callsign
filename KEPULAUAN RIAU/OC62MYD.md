@@ -1,4 +1,4 @@
 # OC62MYD
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/8/b/f8ba9e26656c3c721d99ecf613ee1ec6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/9/1/2913da53b1ee9df9790f4248b8dfde75.jpg)    
 Nama: Mayde Saputra    
 Domisili: Kota Batam    

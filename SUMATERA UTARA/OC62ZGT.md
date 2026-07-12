@@ -1,4 +1,4 @@
 # OC62ZGT
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/d/4/fd484966157518448c4fe797273c744a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/6/6/466017274354f8f430e85da0d2bcacd7.jpg)    
 Nama: ISMAIL    
 Domisili: Kota Medan    
