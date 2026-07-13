@@ -1,4 +1,4 @@
 # OC62AON
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/6/1/c6106ad71876e8b47dbd69276d787657.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/0/b/00b4c5f0219f807ae53837b0834362e2.jpg)    
 Nama: JUSUF SARTONO    
 Domisili: Kota Medan    

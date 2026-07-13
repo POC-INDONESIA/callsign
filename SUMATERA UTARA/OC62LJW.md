@@ -1,4 +1,4 @@
 # OC62LJW
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/d/7/7d7c945334cbdfd41c11bb621c54d310.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/1/2/712dbe613be8fdcf71f7ec1d688f3381.jpg)    
 Nama: bambang suswanto    
 Domisili: Kota Medan    
