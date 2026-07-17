@@ -1,4 +1,4 @@
 # OC62ONE
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/2/a/d2a9f7bd42a8392c9582097ce25d944e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/d/e/bde36a68df8b81e8d2e8a0047a7b68f5.jpg)    
 Nama: Iwan Budiyanto    
 Domisili: Kota Pematangsiantar    

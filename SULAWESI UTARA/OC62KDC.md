@@ -1,4 +1,4 @@
 # OC62KDC
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/5/e/25ef8c3d28a1c3128ad845b6c5bd0d6d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/8/e/08e154b68fd126f346911cb9b70e48c5.jpg)    
 Nama: Suhud Ariyanto    
-Domisili: KAB. MINAHASA UTARA    
+Domisili: Kabupaten Minahasa Utara    
