@@ -1,4 +1,4 @@
 # OC62QJB
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/e/d/8ed6743c03798591b390d55a634c7e41.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/a/5/da5343768e8fae6b4efd2c2ec6b8237e.jpg)    
 Nama: ENDRIYALDI    
 Domisili: Kabupaten Solok    
