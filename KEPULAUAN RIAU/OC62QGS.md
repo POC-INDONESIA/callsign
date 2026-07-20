@@ -1,4 +1,4 @@
 # OC62QGS
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/e/3/ae331042ae70402fbb69135cf9fc054f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/8/5/78500f4f7f079f63cead74a7ed74c1fe.jpg)    
 Nama: NUZUL QURAINI    
 Domisili: Kota Batam    
