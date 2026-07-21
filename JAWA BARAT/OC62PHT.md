@@ -1,4 +1,4 @@
 # OC62PHT
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/0/4/104e280da697e17719affdb135dc3631.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/6/4/064e2a35dc9c6359f8ceffe84b65b5fc.jpg)    
 Nama: Rudy Kurniawan    
 Domisili: Kota Depok    
