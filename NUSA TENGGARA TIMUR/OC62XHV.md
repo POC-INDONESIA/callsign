@@ -1,4 +1,4 @@
 # OC62XHV
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/4/1/d41a72522763e5dbe6247bf8d9bb3fd9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/7/b/f7b48b464aadcf7b4cd4b2f0192ee23a.jpg)    
 Nama: SUNADJI    
 Domisili: Kota Kupang    

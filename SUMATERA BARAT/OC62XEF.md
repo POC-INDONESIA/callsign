@@ -1,4 +1,4 @@
 # OC62XEF
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/4/c/54c3fcec5f59e350f18127f6fa8758e1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/7/4/17448684fc21298ea6fe662dbc08d915.jpg)    
 Nama: SUHARDES    
 Domisili: Kota Solok    

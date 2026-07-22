@@ -1,4 +1,4 @@
 # OC62CGF
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/d/cad7e2ddbaedec976417418862cc6103.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/0/5/405c700f04c57739b09735a331cfa7f6.jpg)    
 Nama: Endang Darlina    
 Domisili: Kabupaten Padang Pariaman    
