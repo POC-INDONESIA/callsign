@@ -1,4 +1,4 @@
 # OC62NJB
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/1/9/a19910a41757b2bdaced4ba76b7f106b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/9/2/69219e71f08cfbf0a48bb77a7e27bcb5.jpg)    
 Nama: TRYSANDY TEODORUS KENPI    
 Domisili: Kabupaten Minahasa    

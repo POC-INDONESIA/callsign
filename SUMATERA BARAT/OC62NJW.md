@@ -1,4 +1,4 @@
 # OC62NJW
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/4/7/a470767fadd9be170217f0546e4db836.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/b/2/eb290389f27ad0336fc48e1e147a37f9.jpg)    
 Nama: Nofendra    
 Domisili: Kabupaten Solok    

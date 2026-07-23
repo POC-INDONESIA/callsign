@@ -1,4 +1,4 @@
 # OC62VFW
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/d/5/bd5b7203b1e921c6cbd755186ea33494.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/0/6/e060028a6d2a5d72e7cb4e6b3fc9d471.jpg)    
 Nama: DUDIK     
 Domisili: Kota Pasuruan    

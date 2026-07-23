@@ -1,4 +1,4 @@
 # OC62AGS
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/0/2/b0270e8c8beb3a0f3c6b8ea1c77b0bb0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/2/5/f25fec560a233c96aedd1d0287c30a5b.jpg)    
 Nama: AGUS SUPRIYADI    
 Domisili: Kabupaten Musi Rawas    

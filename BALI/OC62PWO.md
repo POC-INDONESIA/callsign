@@ -1,4 +1,4 @@
 # OC62PWO
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/4/5/045315455fe891ba11c94b82541b0640.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/3/b/f3b0732590a6e5abe22111c7b8053010.jpg)    
 Nama: jumari    
 Domisili: Kota Denpasar    
