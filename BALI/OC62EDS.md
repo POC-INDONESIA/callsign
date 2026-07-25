@@ -1,4 +1,4 @@
 # OC62EDS
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/a/9/2a9529fad4d4062022d261ca55293c03.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/e/5/2e59f8bb123cbbe416d4a187b717b8aa.jpg)    
 Nama: Edy Prayitno    
 Domisili: Kota Denpasar    
