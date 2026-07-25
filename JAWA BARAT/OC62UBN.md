@@ -1,4 +1,4 @@
 # OC62UBN
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/1/9/d19a4e7007a4dff0635ef28bfc0c2668.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/9/2/c929b187f73dbc083e28b72c46e088fb.jpg)    
 Nama: Astri Purwati    
-Domisili: KOTA BOGOR    
+Domisili: Kota Bogor    
