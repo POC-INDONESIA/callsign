@@ -1,4 +1,4 @@
 # OC62SFJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/9/9/99916398ae95e30583b105158d88aa12.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/3/6/c3663cdc4bbb8728b29afb637bb54f59.jpg)    
 Nama: Nurjanto    
 Domisili: Kabupaten Bekasi    
