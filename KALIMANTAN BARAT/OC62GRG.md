@@ -1,4 +1,4 @@
 # OC62GRG
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/e/3/2e3b1ffa11c8d5edb8b8c9327c45af9e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/d/9/5d9c6d706c384adb558aa7518b5046c5.jpg)    
 Nama: ERWIN KURNIAWAN    
 Domisili: Kabupaten Ketapang    
