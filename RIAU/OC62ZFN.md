@@ -1,4 +1,4 @@
 # OC62ZFN
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/1/a/51a81d6943154bb2bf91f59f620e10b0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/5/9/7594f38184fe70fb8483012d44d2882e.jpg)    
 Nama: MASTERANO     
 Domisili: Kota Pekanbaru    

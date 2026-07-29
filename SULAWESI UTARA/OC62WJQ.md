@@ -1,4 +1,4 @@
 # OC62WJQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/1/5/415aba3f897decb5ef3b91ff926b0a96.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/3/3/b3387c22470d3ff378897f96116da376.jpg)    
 Nama: Brando    
 Domisili: Kota Manado    

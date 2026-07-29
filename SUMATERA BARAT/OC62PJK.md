@@ -1,4 +1,4 @@
 # OC62PJK
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/0/9/c0970a1ad292a08c7d8311570ae7a252.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/6/c/f6ccabaa3168e8f10d51891e9bb7b67c.jpg)    
 Nama: PENDI    
 Domisili: Kota Payakumbuh    
