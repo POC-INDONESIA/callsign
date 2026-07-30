@@ -1,4 +1,4 @@
 # OC62MEV
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/3/f/33f805035993a0d078e7432daff88e6a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/c/4/dc40fb67aa9a763b4181912743d85c7e.jpg)    
 Nama: Ahmad Addas    
 Domisili: Kabupaten Luwu    

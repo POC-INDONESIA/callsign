@@ -1,4 +1,4 @@
 # OC62AYO
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/d/5/9d5615af2dbacbe5197c4424aab60dc5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/d/1/4d122658032f60c7a2ff15ae989b50df.jpg)    
 Nama: JOHANNIS ALFRITS ONDANG    
 Domisili: Kota Manado    

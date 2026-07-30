@@ -1,4 +1,4 @@
 # OC62EGF
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/3/c/c3ca2d6e932b79d7ae0aac00bc17ecbc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/9/5/a9585b1238920e819182de965bbafe3f.jpg)    
 Nama: YASRIPITO    
 Domisili: Kabupaten Lima Puluh Kota    

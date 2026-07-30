@@ -1,4 +1,4 @@
 # OC62SMS
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/b/e/8bec896aab13909b8ba0a345cdf0b9de.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/a/0/1a08001bd17cf7ac59be9ca2367bedb0.jpg)    
 Nama: H. Abdullah Nurdin    
-Domisili: KOTA MAKASSAR    
+Domisili: Kota Makassar    
