@@ -1,4 +1,4 @@
 # OC62BKX
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/7/2/672f7dfdec6d91617eb01f6264625f00.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/c/e/ecedff6ff69f42a21f958109a75e4b47.jpg)    
 Nama: H. Mazkuri    
 Domisili: Kabupaten Banjar    

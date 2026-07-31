@@ -1,4 +1,4 @@
 # OC62KEZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/0/c/10c2fc3a5ed23ed8b9493ca48aae2e97.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/b/8/0b8ea933c7c9d5a67ffdcbf503d4c2f8.jpg)    
 Nama: Rusdiansyah SE    
-Domisili: KAB. TANAH BUMBU    
+Domisili: Kabupaten Tanah Bumbu    
