@@ -1,4 +1,4 @@
 # OC62RON
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/3/1/9313ca1033a795bb3d25fcc22d9633ae.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/b/6/cb654173182cabbc27817e6b1acc9403.jpg)    
 Nama: Sahroni    
 Domisili: Kota Denpasar    

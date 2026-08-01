@@ -1,4 +1,4 @@
 # OC62BBC
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/c/e/0ceee439f1eca458c380e706142e7731.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/b/2/5b2b4cd70204913efbfd798da61590ee.jpg)    
 Nama: I NYOMAN GEDE WARNATHA    
 Domisili: Kabupaten Badung    
