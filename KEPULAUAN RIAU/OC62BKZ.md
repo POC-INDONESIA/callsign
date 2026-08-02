@@ -1,4 +1,4 @@
 # OC62BKZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/5/a/35a527d4b24448a5159b42d047c923ee.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/2/9/229d3170bf6447435b900cfcd5ae6f5c.jpg)    
 Nama: SUHARSIH    
 Domisili: Kota Batam    
