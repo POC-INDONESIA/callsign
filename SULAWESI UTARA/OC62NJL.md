@@ -1,4 +1,4 @@
 # OC62NJL
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/4/d/f4d4b3988e6256da84432c1982a5b7b0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/0/8/c084244778c5cbf6d7a2d72fc57290bf.jpg)    
 Nama: FERDINAND AYUB SIRAMBANG    
 Domisili: Kota Manado    

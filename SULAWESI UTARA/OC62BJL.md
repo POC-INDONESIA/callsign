@@ -1,4 +1,4 @@
 # OC62BJL
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/e/5/3e5640e268e1bff0be8d690df71ca843.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/e/5/ce517bf51db1199aba62c8c36d771d75.jpg)    
 Nama: OKTAVIANO KORENGKENG    
 Domisili: Kota Manado    

@@ -1,4 +1,4 @@
 # OC62PHZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/4/e/04e36d86809f784670bd4508183115c5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/f/7/9f78173536f0ba46ad1c68e13c65a36c.jpg)    
 Nama: AHMAD KHAN    
 Domisili: Kota Manado    

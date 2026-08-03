@@ -1,4 +1,4 @@
 # OC62SHF
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/f/f/3ffe3536ce8507e41899c4fd2ad70c62.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/6/8/7687c15a2b939e59d1a7f8f212928bf2.jpg)    
 Nama: Devis Rembet    
 Domisili: Kabupaten Minahasa    

@@ -1,4 +1,4 @@
 # OC62UDV
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/a/6/7a630d0c71a0b70c4a484ebb3675acb0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/d/8/ed841aa1dfa6bfdb79dcb80fd9a812b4.jpg)    
 Nama: Muh Said    
 Domisili: Kabupaten Jayawijaya    

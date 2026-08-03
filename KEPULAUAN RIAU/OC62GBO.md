@@ -1,4 +1,4 @@
 # OC62GBO
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/4/4/244e3e25a7c568fa4770cf47e68e7ee2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/5/8/5585075799c08c2fb35af00dc109fd7f.jpg)    
 Nama: Retno Laia     
 Domisili:     

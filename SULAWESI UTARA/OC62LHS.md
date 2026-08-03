@@ -1,4 +1,4 @@
 # OC62LHS
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/f/e/bfec5f1c0fccd9a3b5469ffbd880b83d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/6/8/1689be55de3ba98c250b278d12e0550a.jpg)    
 Nama: JOHLY FRENGKY MAMAHIT    
 Domisili: Kota Manado    
