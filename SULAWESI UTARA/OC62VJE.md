@@ -1,4 +1,4 @@
 # OC62VJE
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/2/8/028fa727facae708dd1c549a2e3c0e4a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/f/2/bf2b479ed0ca432a5e524cc2b4901fb8.jpg)    
 Nama: ADRIANUS HENGKY SULU    
 Domisili: Kota Tomohon    
