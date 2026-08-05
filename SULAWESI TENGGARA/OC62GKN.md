@@ -1,4 +1,4 @@
 # OC62GKN
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/6/2/a6240b20b02d7378ed8c1c35397cc850.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/6/b/36b6de4bff6e42cc82cad062a8727065.jpg)    
 Nama: Drs. MUSTAFA . M    
 Domisili: Kota Kendari    

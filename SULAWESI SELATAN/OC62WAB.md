@@ -1,4 +1,4 @@
 # OC62WAB
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/0/8/9084ed44799745865ceed89bb1c361ba.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/c/0/ac0aa0decb8714e3f4bffc098cff22f0.jpg)    
 Nama: MUH. IQBAL RAZAK    
-Domisili: KAB. LUWU TIMUR    
+Domisili: Kabupaten Luwu Timur    

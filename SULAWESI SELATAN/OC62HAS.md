@@ -1,4 +1,4 @@
 # OC62HAS
 ![Foto](https://portal.pocindonesia.web.id//data/foto/8/d/e/8de757a338939dd6e79f5519470f0e5d.jpg)    
 Nama: Nildayanti    
-Domisili: KOTA PARE PARE    
+Domisili: Kota Parepare    

@@ -1,4 +1,4 @@
 # OC62SDQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/e/6/1e67b909c0e210b132d2588b734aebea.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/1/f/51f138b8f61b458ea78f463648e811b0.jpg)    
 Nama: NIRWANSYAH    
 Domisili: Kota Tarakan    

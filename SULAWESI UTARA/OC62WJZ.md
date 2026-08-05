@@ -1,4 +1,4 @@
 # OC62WJZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/4/6/246386736924e31fc6dae1bd08cb5e1c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/e/2/ce28c8715277b9c18547031163166c45.jpg)    
 Nama: SONJA DETTY RATUMBUISANG    
 Domisili: Kota Manado    
