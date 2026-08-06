@@ -1,4 +1,4 @@
 # OC62VDS
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/3/2/a326bd55ad6eba718277b1837320999e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/1/6/c161335fbc038c4b83c5ea36e17c5490.jpg)    
 Nama: HASANUDDIN    
-Domisili: KAB. SIDENRENG RAPPANG    
+Domisili: Kabupaten Sidenreng Rappang    

@@ -1,4 +1,4 @@
 # OC62ACF
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/6/ba6ab66314325b98abe3c35de947ac12.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/7/2/f727e5df9b4cf4e9582f287325f1a869.jpg)    
 Nama: Muh Nurjani Palungan    
 Domisili: Kota Palopo    

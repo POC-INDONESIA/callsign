@@ -1,4 +1,4 @@
 # OC62BAL
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/6/a/06a16e5ed9056c9e5416eaa787fd4f98.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/8/6/d86faddf6d8ce07c6a77a81bf57059f1.jpg)    
 Nama: Bernard Iskandar    
 Domisili:     
