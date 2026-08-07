@@ -1,4 +1,4 @@
 # OC62SEL
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/4/f/c4fbacd040c4eec4d540f6d5c20fab31.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/f/3/df3d35fd7a5e8be9c11c4629fb577ce0.jpg)    
 Nama: Risman Umar    
 Domisili: Kabupaten Pinrang    

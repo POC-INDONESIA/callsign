@@ -1,4 +1,4 @@
 # OC62LEZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/4/1/741df210c62dd141d769bf96228bb615.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/1/7/d17d1f8aeb3f76d0540ea407ec6f4dac.jpg)    
 Nama: Muhammad Gunawan    
 Domisili: Kota Tangerang Selatan    

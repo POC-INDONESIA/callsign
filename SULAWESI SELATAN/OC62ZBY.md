@@ -1,4 +1,4 @@
 # OC62ZBY
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/a/2/7a2744925f5f99335d2efdb6972a74fe.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/d/0/3d0df2cf66f1f03be901d5b19db619a4.jpg)    
 Nama: IR HAMALUDDING    
-Domisili:     
+Domisili: Kabupaten Luwu Utara    

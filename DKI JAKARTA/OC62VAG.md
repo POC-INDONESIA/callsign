@@ -1,4 +1,4 @@
 # OC62VAG
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/d/d/fdd35fddae1f256b1eaa961d5b0cab63.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/b/6/3b696faa5fd7b3947273428428e8c9bc.jpg)    
 Nama: RUDI ALFIANDI YUSUP    
 Domisili:     
