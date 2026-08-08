@@ -1,4 +1,4 @@
 # OC62WDP
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/7/e/87e2a67115ad041c80376d295344942c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/2/6/d268082a12def7cb23bfc9e7f8fa860f.jpg)    
 Nama: MUSAWIR A.MD    
 Domisili: Kota Palopo    

@@ -1,4 +1,4 @@
 # OC62AIV
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/a/3/da3f00bf751e66cb623aebad01dbe36d.jpg)    
-Nama: M.KRISDIAN    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/2/5/e254355e189de64eb53c5e3d77b28846.jpg)    
+Nama: M. KRISDIAN    
 Domisili: Kabupaten Buleleng    

@@ -1,4 +1,4 @@
 # OC62VEP
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/a/4/9a483c68814a0bd658e6dc41ca863892.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/5/8/2585461ea0bd02e243f2ec3daaacdbca.jpg)    
 Nama: Agus Suyitno    
-Domisili: KOTA TANGERANG    
+Domisili: Kota Tangerang    
