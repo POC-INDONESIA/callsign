@@ -1,4 +1,4 @@
 # OC62LBN
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/9/f/f9feccf5db49d4c2a5cac34dd09e8675.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/c/9/8c9b4d3475fbc102e86bb91d8775c913.jpg)    
 Nama: Idris Sofian Noor    
 Domisili: Kota Balikpapan    

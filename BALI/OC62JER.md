@@ -1,4 +1,4 @@
 # OC62JER
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/5/0/15099cefb0660c4837d3777e26263388.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/4/f/54f0638c48b173102108af5919c43843.jpg)    
 Nama: Sudarsono    
 Domisili: Kabupaten Badung    

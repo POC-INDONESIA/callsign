@@ -1,4 +1,4 @@
 # OC62PUT
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/a/9/5a9b8a86f40d2f960973dfa85eb6f8c8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/5/c/f5c1f480b04bf19d4c90ad0c066c4c47.jpg)    
 Nama: Wilnida Sutrisna Putri    
 Domisili: Kota Tangerang    
