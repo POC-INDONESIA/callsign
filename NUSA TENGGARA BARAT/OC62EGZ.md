@@ -1,4 +1,4 @@
 # OC62EGZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/6/9/169144495a443c83be087baf21b7e944.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/e/e/1ee641c33d17f66eae7247303e59edae.jpg)    
 Nama: IDA ZUBAEDAH    
 Domisili: Kota Mataram    

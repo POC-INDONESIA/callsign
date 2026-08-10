@@ -1,4 +1,4 @@
 # OC62MDC
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/e/f/6ef750d97664a859be188b6a2570a0f4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/8/2/1821eb893b0618817227ba96c458e70e.jpg)    
 Nama: Rachmat Kurniawan    
 Domisili: Kota Administrasi Jakarta Selatan    

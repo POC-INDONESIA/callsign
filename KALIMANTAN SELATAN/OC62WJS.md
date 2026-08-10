@@ -1,4 +1,4 @@
 # OC62WJS
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/f/8/0f88e3cc95096aab1ca332698b485a2f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/1/a/31ae666018613d693516f956b0372ccc.jpg)    
 Nama: BAHRUDIN    
 Domisili: Kabupaten Banjar    
