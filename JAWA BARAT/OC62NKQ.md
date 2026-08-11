@@ -1,4 +1,4 @@
 # OC62NKQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/b/d/4bd4abfc5d210e5e47a2c578c2e908df.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/3/2/a32c4a2f268b8aad2a8ac82040d7dc5b.jpg)    
 Nama: Anton Priyatno. DRS    
 Domisili: Kabupaten Bekasi    

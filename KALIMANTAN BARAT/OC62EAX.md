@@ -1,4 +1,4 @@
 # OC62EAX
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/3/683b8101a28bef27ae955e09b6205d6c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/b/d/3bdb2b2c2ed20e80d9b6235c5763b3ef.jpg)    
 Nama: SYARIF HASAN    
 Domisili:     
