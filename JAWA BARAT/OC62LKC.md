@@ -1,4 +1,4 @@
 # OC62LKC
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/3/c/f3c22021fbebaf9e5a63b0e1252b0ffd.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/b/5/5b57273835759d321711d06de634b09c.jpg)    
 Nama: Sri Istanto    
 Domisili: Kota Bekasi    

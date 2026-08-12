@@ -1,4 +1,4 @@
 # OC62KHR
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/c/0/5c0f837303057b6213890e18e7ca43ca.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/4/c/f4ce1ec6bb10726b4b76b7c1c7c3371b.jpg)    
 Nama: KAHARUDDIN    
-Domisili: KAB. SIDENRENG RAPPANG    
+Domisili: Kabupaten Sidenreng Rappang    
