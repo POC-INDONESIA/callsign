@@ -1,3 +1,3 @@
 # OC62TEQ
-Nama: DASUKI    
-Domisili: KAB. LEBAK    
+Nama: Dasuki    
+Domisili: Kabupaten Lebak    
