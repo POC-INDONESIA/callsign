@@ -1,4 +1,4 @@
 # OC62ICL
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/5/a/45a687b1b49e417849f8e17c6730905b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/3/d/b3db2f685c635cd12592149e56f5ef35.jpg)    
 Nama: I PUTU REGEN WIRAADI SUWIYOGA SH    
 Domisili: Kota Denpasar    

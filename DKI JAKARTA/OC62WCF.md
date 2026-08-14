@@ -1,4 +1,4 @@
 # OC62WCF
 ![Foto](https://portal.pocindonesia.web.id//data/foto/5/0/d/50d081c150bf2febbe0314ef3290e97b.jpg)    
 Nama: Asep Achmad Hidayat     
-Domisili: KOTA ADM. JAKARTA SELATAN    
+Domisili: Kota Administrasi Jakarta Selatan    

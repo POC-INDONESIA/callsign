@@ -1,4 +1,4 @@
 # OC62REN
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/a/d/9ad69d322b773f50b8639e342592d4bb.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/0/4/3048ad0adde96a94fe737aa6ac1a6885.jpg)    
 Nama: Dama Rendyandri    
 Domisili: KOTA ADM. JAKARTA TIMUR    
