@@ -1,4 +1,4 @@
 # OC62TJP
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/8/8/488a015dd3603ef06d4d9469f5fde64d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/e/d/8ed3e289258d5d1013b0187311eb84f4.jpg)    
 Nama: Darliyus    
 Domisili: Kabupaten Aceh Selatan    

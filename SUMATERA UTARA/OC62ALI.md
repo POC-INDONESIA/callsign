@@ -1,4 +1,4 @@
 # OC62ALI
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/6/b7622cf1e5754deb773b22459b1fbc95.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/0/2/502b64eaa5b436e34ca001eb7582cd01.jpg)    
 Nama: ALI AKBAR    
 Domisili: Kabupaten Langkat    

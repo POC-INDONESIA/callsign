@@ -1,4 +1,4 @@
 # OC62HKF
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/a/d/7ad5c7bc76d452eb41e6b5c3f82859f9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/d/6/7d62f3e61efb002ea4d873d322e9613c.jpg)    
 Nama: PERDLIEMP REMBET    
 Domisili: Kota Manado    

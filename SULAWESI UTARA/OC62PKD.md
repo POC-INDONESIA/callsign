@@ -1,4 +1,4 @@
 # OC62PKD
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/6/a/36aea49342163ad796220ced97d99922.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/3/b73596e8b23fca8a489b084d442b8f3a.jpg)    
 Nama: RUDY WALA    
 Domisili: Kabupaten Minahasa    
