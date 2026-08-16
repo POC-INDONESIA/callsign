@@ -1,4 +1,4 @@
 # OC62YAG
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/e/d/0ede60dcba9327e88a09709601bf6101.jpg)    
-Nama: Gustopo    
-Domisili:     
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/5/2/4522d9f79b07362bce6bf560ba1b568e.jpg)    
+Nama: AGUS GUSTOPO    
+Domisili: Kota Administrasi Jakarta Barat    

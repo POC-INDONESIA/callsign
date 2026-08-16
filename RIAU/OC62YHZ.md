@@ -1,4 +1,4 @@
 # OC62YHZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/3/e/83e0471f3c4ac9c437c0015894057e1d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/7/8/678e281f6d29372ce305ddbc4ee9d89d.jpg)    
 Nama: Darmansyah    
 Domisili: Kota Pekanbaru    
