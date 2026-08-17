@@ -1,4 +1,4 @@
 # OC62RJF
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/d/0/ed02c9d6db4671e6781dc6c68a3a3cd6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/7/5/5755b313e1d8dc296f5559792015a622.jpg)    
 Nama: Andy Budianto    
 Domisili: Kabupaten Blitar    

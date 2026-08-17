@@ -1,4 +1,4 @@
 # OC62KLS
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/5/a/e5a4baca3cad3c417d22d70f5d3b9e8f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/4/5/345c997a70e6e892addf3d950e281d8b.jpg)    
 Nama: CHAIRIL ANWAR    
 Domisili: Kabupaten Kolaka    
