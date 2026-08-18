@@ -1,4 +1,4 @@
 # OC62PHM
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/6/9/e693c26d98d60475cb5f021e1f102eba.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/c/f/9cf857e8a5c14260c7c55cce7d11b9d4.jpg)    
 Nama: MOHAMMAD RIZAL    
 Domisili: Kota Manado    

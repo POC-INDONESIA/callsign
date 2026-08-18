@@ -1,4 +1,4 @@
 # OC62SIP
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/c/4/bc4a0849dd53c360f7758868afa8f7f8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/6/ba6170ebcdb16daca271db69a06e3e3a.jpg)    
 Nama: ISKANDAR PONTOH    
 Domisili: Kota Kotamobagu    

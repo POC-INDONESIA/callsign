@@ -1,4 +1,4 @@
 # OC62GBT
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/2/232ce1d0fa477115bf625ac67cef063b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/b/8/bb8b456c2b31155d7c65f11d1a336f84.jpg)    
 Nama: Hery Wangsa    
 Domisili: Kota Tangerang    

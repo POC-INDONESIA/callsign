@@ -1,4 +1,4 @@
 # OC62OKH
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/0/5/60584988052d0903f805212afc5e84f4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/c/1/7c1b9afeefeda9b534bbee1df3ded4d9.jpg)    
 Nama: JEMMY BERTY MAWUNTU    
 Domisili: Kabupaten Minahasa    

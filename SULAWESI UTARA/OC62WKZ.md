@@ -1,4 +1,4 @@
 # OC62WKZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/7/3/4734c5bd027dd8debb555a58c835deda.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/6/d/46dbbfc36b95311dd44fca9b40c7a607.jpg)    
 Nama: JEINER IVAN POLII    
 Domisili: Kabupaten Minahasa Utara    

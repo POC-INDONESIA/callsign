@@ -1,4 +1,4 @@
 # OC62BHX
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/6/e/f6ec61ffe41a75811c2618951f0a3065.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/0/7/507266ba526f7595c54f595ec7d8b9e7.jpg)    
 Nama: WAWAN DEU    
 Domisili: Kota Manado    

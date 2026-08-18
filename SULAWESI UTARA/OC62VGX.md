@@ -1,4 +1,4 @@
 # OC62VGX
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/1/a/a1a44fea6237a8aa5b82f019b50894a2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/9/8/398f2f2902e788754315b19a355fd244.jpg)    
 Nama: Retty Christina Langitan    
 Domisili: Kota Tomohon    

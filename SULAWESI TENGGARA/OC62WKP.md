@@ -1,4 +1,4 @@
 # OC62WKP
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/c/8/9c83b0e070c976da0b73c57e7eaf1cfe.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/0/9/209bca9f7f2c691ff3feacf35d28acd6.jpg)    
 Nama: M. YUNUS    
 Domisili: Kabupaten Kolaka    
