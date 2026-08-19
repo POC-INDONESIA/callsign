@@ -1,4 +1,4 @@
 # OC62FAL
 ![Foto](https://portal.pocindonesia.web.id//data/foto/5/9/e/59ed0c735462a89e1f8e1efd57a63519.jpg)    
 Nama: MISTO    
-Domisili: KOTA ADM. JAKARTA BARAT    
+Domisili: Kota Administrasi Jakarta Barat    
