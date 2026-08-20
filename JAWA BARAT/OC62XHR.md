@@ -1,4 +1,4 @@
 # OC62XHR
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/3/6/5364c97ff08b96f5ec7735ed043567cc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/c/8/9c86b638a241cdbbf895e838a673a7ca.jpg)    
 Nama: Pusat Pengendali dan Operasional    
 Domisili: Kota Bandung    

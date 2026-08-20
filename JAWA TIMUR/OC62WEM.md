@@ -1,4 +1,4 @@
 # OC62WEM
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/1/4/b14da3ca273c30b56cda0a19d11b574f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/d/f/adfe39ba0e35b2269118c0cc699e3217.jpg)    
 Nama: WAHYUNI    
-Domisili: KOTA BLITAR    
+Domisili: Kota Blitar    

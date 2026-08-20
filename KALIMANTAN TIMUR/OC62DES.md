@@ -1,4 +1,4 @@
 # OC62DES
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/3/1/731fc49a2dc8205636a883e3c376721c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/0/d/90d60cb2501fe0c6202ad7521cd53014.jpg)    
 Nama: Nonos Irwan Nopiar    
-Domisili: KOTA BALIKPAPAN    
+Domisili: Kota Balikpapan    
