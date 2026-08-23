@@ -1,4 +1,4 @@
 # OC62NUX
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/8/4/d84dd333db3f18c4d00ed58a29794c3b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/3/1/331d36f97cb4a5bbecb3a0ddecd8ca89.jpg)    
 Nama: Ibnu Maksum    
 Domisili: Kabupaten Bogor    
