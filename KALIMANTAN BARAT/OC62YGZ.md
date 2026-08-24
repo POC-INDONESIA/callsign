@@ -1,4 +1,4 @@
 # OC62YGZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/8/1/081f111899beb1dd01c19ab487e6ee0a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/e/8/9e851b39eb5db998ccba83571f17059b.jpg)    
 Nama: KUSTANTINI    
 Domisili: Kabupaten Kubu Raya    
