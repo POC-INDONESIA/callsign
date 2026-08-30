@@ -1,4 +1,4 @@
 # OC62GJM
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/8/0/180d887aa2ec4380d51cda2d61f16af7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/3/7/d37036ab06621a910d708add7fc82323.jpg)    
 Nama: Suriadi    
 Domisili: Kabupaten Pelalawan    
