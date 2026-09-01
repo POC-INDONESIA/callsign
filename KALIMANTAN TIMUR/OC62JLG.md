@@ -1,4 +1,4 @@
 # OC62JLG
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/c/72c66d56fe4e7f2f36e81f8fde8cdef2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/7/e/47e18547b1ca55c9128bfe1d0d119951.jpg)    
 Nama: KAHARUDDIN DG. POLE    
 Domisili: Kabupaten Penajam Paser Utara    

@@ -1,4 +1,4 @@
 # OC62JGW
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/0/e/b0ecf97ba49379dc19e93729ca5c5326.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/6/0/160e47164dfbe12145c0e3876a80a486.jpg)    
 Nama: ANTONIUS MARAMIS    
 Domisili: Kota Tomohon    
