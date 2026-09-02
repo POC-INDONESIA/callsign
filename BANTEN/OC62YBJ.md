@@ -1,4 +1,4 @@
 # OC62YBJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/c/e/6ce65573f1c6741f8c54c35eec57fcfd.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/e/bae03ea8eac67f1bdc0f1f89667edd55.jpg)    
 Nama: Sumartinah    
 Domisili: Kabupaten Tangerang    

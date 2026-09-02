@@ -1,4 +1,4 @@
 # OC62GJW
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/f/0/af0c48f6fe263aee51b3cfaf8caece77.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/a/f/daf0cedc79ba1c569a2844465248e8c7.jpg)    
 Nama: DES ALVIAN    
 Domisili: Kota Payakumbuh    
