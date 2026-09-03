@@ -1,4 +1,4 @@
 # OC62XCM
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/7/f/67fbaa3b4523b306b19cc7806b4766cc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/1/9/e190b986198a2ef05d7af2bbd9d42915.jpg)    
 Nama: Haidir    
-Domisili:     
+Domisili: Kota Samarinda    

@@ -1,4 +1,4 @@
 # OC62TFC
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/2/d/82d70a0e059802fb7976c68c95b59c12.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/9/5/7955506bbb4aa729a4698f18e238fc45.jpg)    
 Nama: Dodiek Poedyosewojo    
-Domisili: KAB. GRESIK    
+Domisili: Kabupaten Gresik    
