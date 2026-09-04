@@ -1,4 +1,4 @@
 # OC62XEL
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/f/5/cf5ac3f45c20150e675aeef3e47c75f8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/d/e/4deaf464125d6a736cb0251d6207dc3b.jpg)    
 Nama: Awang Noviandi    
 Domisili: Kabupaten Banyuwangi    

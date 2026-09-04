@@ -1,4 +1,4 @@
 # OC62DPZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/3/c/13c572215339f593e1ab7346afd65e4a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/9/8/398535919ecd8876bcea107309a78ed6.jpg)    
 Nama: NOVI HARIANTO    
-Domisili: KAB. BANJAR    
+Domisili: Kabupaten Banjar    

@@ -1,4 +1,4 @@
 # OC62IDI
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/f/a/efa91e4bcbe2e2afeece39d349a44f70.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/3/d/43dc8acbd69efb34c7fd15695eb8fb25.jpg)    
 Nama: Idi Rohaedi    
-Domisili: KOTA CILEGON    
+Domisili: Kota Cilegon    

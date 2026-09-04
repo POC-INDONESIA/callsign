@@ -1,4 +1,4 @@
 # OC62DBF
 ![Foto](https://portal.pocindonesia.web.id//data/foto/c/5/1/c5137fa2eb05f7d69c1779aec76d7647.jpg)    
 Nama: Marcus Welly    
-Domisili: KAB. BEKASI    
+Domisili: Kabupaten Bekasi    

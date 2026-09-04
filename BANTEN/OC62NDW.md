@@ -1,4 +1,4 @@
 # OC62NDW
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/2/4/3241fc738c6cf0120888d29d8b842697.jpg)    
-Nama: SUKIYAN     
-Domisili: KOTA TANGERANG    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/d/d/ddde8f4b32fa2f5c4aed71357632a784.jpg)    
+Nama: Sukiyan     
+Domisili: Kota Tangerang    
