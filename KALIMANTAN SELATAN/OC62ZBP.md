@@ -1,4 +1,4 @@
 # OC62ZBP
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/c/72c75b2687f60b4af66dc20f05682a0c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/1/4/0144712dd81be0c3d9724f5e56ce6685.jpg)    
 Nama: Muhammad Saribi    
 Domisili: Kabupaten Hulu Sungai Tengah    

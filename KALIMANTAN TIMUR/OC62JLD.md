@@ -1,4 +1,4 @@
 # OC62JLD
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/4/7/5478b0faf85c7da75a9098783a752f12.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/f/4/0f4edccd14cf2b437bd58e9bdc19cc2a.jpg)    
 Nama: Ahmadi Ahmad    
 Domisili: Kota Balikpapan    

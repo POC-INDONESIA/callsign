@@ -1,4 +1,4 @@
 # OC62BEG
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/1/3/f13356c326d6a2a31e7b62fe47c451bc.jpg)    
-Nama: ASEP SURYADI    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/b/6/0b6c0df143f13b84b5ab1e90615dcd66.jpg)    
+Nama: Asep Suyadi    
 Domisili: Kabupaten Serang    

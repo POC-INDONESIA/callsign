@@ -1,4 +1,4 @@
 # OC62TBM
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/0/8/70855d32741fde28c63230d3f7ad45fe.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/8/7282230dde4fe48c639570911242bea5.jpg)    
 Nama: JANTJE MAXI A. E. KALIGIS    
 Domisili: Kota Manado    

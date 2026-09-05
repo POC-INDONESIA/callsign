@@ -1,4 +1,4 @@
 # OC62NLJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/5/b/a5b6d99aa3e32074ef3bd5085562e549.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/1/3/c13632be7636c3522d650f11cf6bc36d.jpg)    
 Nama: Syarman    
 Domisili: Kabupaten Pidie Jaya    
