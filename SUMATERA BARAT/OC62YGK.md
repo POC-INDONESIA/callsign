@@ -1,4 +1,4 @@
 # OC62YGK
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/e/c/eec332ee8f6cd93712e4a058414c77a7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/f/8/ef8ab0c6f6d02934a0c292a0bb862978.jpg)    
 Nama: MASDAR BAHAR    
 Domisili: Kota Padang    
