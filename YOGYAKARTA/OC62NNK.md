@@ -1,4 +1,4 @@
 # OC62NNK
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/c/f/7cfc83999580d308295623160d2d92ab.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/5/d/05d6c2dee8a1a5dd54d2ca751c2ec400.jpg)    
 Nama: GENDRO NUGROHO ADI    
 Domisili: Kabupaten Sleman    
