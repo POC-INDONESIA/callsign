@@ -1,4 +1,4 @@
 # OC62VDN
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/c/7/9c7cf877afc0cbc1b90a968e3d71043c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/4/a/a4af034758756375b2a98e8480c895aa.jpg)    
 Nama: Yunani    
-Domisili: KOTA SURABAYA    
+Domisili: Kota Surabaya    

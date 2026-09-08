@@ -1,4 +1,4 @@
 # OC62QLK
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/d/0/cd078b3793b6a723f7d966023dfdd0a5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/1/f/21fc35fa3d840389b205ea348fc16f02.jpg)    
 Nama: NAIEMUN R RADJAK    
 Domisili: Kota Gorontalo    
