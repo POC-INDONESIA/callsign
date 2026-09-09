@@ -1,4 +1,4 @@
 # OC62JHH
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/6/5/c65996c8aa7d4ef0c6fecf6e66497125.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/8/5/f85cb952ea86c1597225e57fcd3f2b0b.jpg)    
 Nama: Amirullah    
 Domisili: Kabupaten Dompu    
