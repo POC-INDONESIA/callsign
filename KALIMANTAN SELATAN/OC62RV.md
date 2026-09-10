@@ -1,4 +1,4 @@
 # OC62RV
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/0/4/c0444b82604fb0b6eb22ce636c9c6da9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/9/1/391b1cecb83f3e2c8b65e675fbf7c90b.jpg)    
 Nama: M. Ravi Abdullah    
 Domisili: Kabupaten Kotabaru    

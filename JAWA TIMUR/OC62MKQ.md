@@ -1,4 +1,4 @@
 # OC62MKQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/d/8/0d89a4cfdc2c636554c7cfce15640be3.jpg)    
-Nama: Abdul Hafid    
-Domisili: Kabupaten Bangkalan    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/9/2/192bc457ea9acadb2a8275eb96eedb15.jpg)    
+Nama: Didiek Rachmadi    
+Domisili: Kota Surabaya    
