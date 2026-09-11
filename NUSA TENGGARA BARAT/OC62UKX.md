@@ -1,4 +1,4 @@
 # OC62UKX
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/b/9/8b93625b384b9745481806f6ea15c6fc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/c/3/3c38d372eb02a5107a250f53e931d94b.jpg)    
 Nama: Ardiansyah    
 Domisili: Kota Bima    
