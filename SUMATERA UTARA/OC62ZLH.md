@@ -1,4 +1,4 @@
 # OC62ZLH
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/9/8/d9858a0cd4a6be8d3c665efc8601e90f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/9/5/59551532308ecfd2f9fd26311f5534d9.jpg)    
 Nama: Muhammad Fajar Siddik    
 Domisili: Kota Medan    
