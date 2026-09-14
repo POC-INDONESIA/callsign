@@ -1,4 +1,4 @@
 # OC62TKN
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/b/4/ab4279f1fbc641721126864ff0d4332b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/b/2/1b2628c0845adac234a6d4e0ad6488e9.jpg)    
 Nama: LIMBAK CAHAYA    
 Domisili: Kota Payakumbuh    

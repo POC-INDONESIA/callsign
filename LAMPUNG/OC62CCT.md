@@ -1,4 +1,4 @@
 # OC62CCT
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/8/7289f380ae86f75cf82ccc89dd66b6c0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/6/7/667beff57db74191afe41ab1c50eca55.jpg)    
 Nama: M.Y.HERMAN SAPUTRA    
 Domisili: Kabupaten Lampung Selatan    

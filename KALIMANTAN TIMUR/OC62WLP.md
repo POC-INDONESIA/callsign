@@ -1,4 +1,4 @@
 # OC62WLP
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/4/6/f465eba6660558448c98c7bc76427ee1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/d/5/cd584f222a67294edf850ecad0cbf2f9.jpg)    
 Nama: SRI HARTATI    
 Domisili: Kabupaten Kutai Kartanegara    

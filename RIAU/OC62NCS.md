@@ -1,4 +1,4 @@
 # OC62NCS
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/c/e/ece634c7640a9f28ca9f293209fdd7e2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/0/f/f0fb1a11a6539ce7f70a72fa0339eebd.jpg)    
 Nama: NUR CHOERUDIN SHOLEH    
 Domisili: Kabupaten Kampar    
