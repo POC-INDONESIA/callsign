@@ -1,4 +1,4 @@
 # OC62PKY
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/f/8/7f899097a87344816de269c3f7565a12.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/0/e/f0e388124966960407622157f3f17c44.jpg)    
 Nama: Aditya Nugraha    
 Domisili: KOTA PALANGKARAYA    

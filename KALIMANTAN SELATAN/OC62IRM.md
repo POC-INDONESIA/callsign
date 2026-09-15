@@ -1,4 +1,4 @@
 # OC62IRM
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/6/7/d6786cb8c48fa5698e9e5f2b63c92aec.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/8/9/e893423a9775934cac06f06dcd7bbbef.jpg)    
 Nama: AKHMAD FAUZANI    
 Domisili: Kota Banjarmasin    

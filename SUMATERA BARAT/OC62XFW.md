@@ -1,4 +1,4 @@
 # OC62XFW
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/8/7/a87811b73f7ce987980415a4071c4267.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/e/c/aecae9728e770897ea8234388991e5cf.jpg)    
 Nama: SALTIS ELVERA    
 Domisili: Kabupaten Solok    
