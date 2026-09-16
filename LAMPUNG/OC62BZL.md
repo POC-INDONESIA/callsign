@@ -1,4 +1,4 @@
 # OC62BZL
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/d/9/bd9e7215fbe9bc3995460a0c443a7543.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/d/b/adbe5eb035ae819316ba6c39bc345da3.jpg)    
 Nama: SUSANTO    
 Domisili: Kabupaten Lampung Selatan    

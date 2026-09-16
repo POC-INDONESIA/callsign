@@ -1,4 +1,4 @@
 # OC62XJD
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/f/1/ff1be9c711ed3d134e43c5a3e8423dd1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/4/c/34c8b0a4c8c2af3c210b34b016b9f848.jpg)    
 Nama: Paulus Basha    
 Domisili: Kota Metro    
