@@ -1,4 +1,4 @@
 # OC62JMW
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/3/6/0362e123137579378647a178cec88f7c.jpg)    
-Nama: I KADEK DWIPAYANA PUTRA    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/e/2/0e2e45602ead9e37ea16c3cb079bcf7d.jpg)    
+Nama: I KADEK DWIPA YANA PUTRA    
 Domisili: Kabupaten Badung    

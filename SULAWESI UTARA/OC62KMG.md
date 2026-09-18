@@ -1,4 +1,4 @@
 # OC62KMG
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/9/a/d9a5cc2e48dbd1a2c0f1df5074b900b9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/0/2/e02f980ed33142161b731306070fbfc9.jpg)    
 Nama: DJEFRY BERTY PIOH    
 Domisili: Kabupaten Minahasa    
