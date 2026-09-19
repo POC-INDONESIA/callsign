@@ -1,4 +1,4 @@
 # OC62NJZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/9/689f086903fc91e686f4d769f22d8d24.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/c/9/1c949b928395ade83aed1f074b92474c.jpg)    
 Nama: Budi    
 Domisili: Kabupaten Sambas    

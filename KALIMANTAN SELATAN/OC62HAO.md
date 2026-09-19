@@ -1,4 +1,4 @@
 # OC62HAO
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/f/1/df10cc1e20aa66c623fa251d097af5f2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/0/0/1008d5af38b8c7d1695ca6f2ca08c554.jpg)    
 Nama: Ardian nor    
 Domisili: Kabupaten Banjar    

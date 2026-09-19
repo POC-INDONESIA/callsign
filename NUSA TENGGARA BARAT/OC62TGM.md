@@ -1,4 +1,4 @@
 # OC62TGM
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/3/b/d3be3c623eaa0b42a0564b314ad2a24c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/9/0/c90abd7b0691e24e40222be66f933acd.jpg)    
 Nama: I MADE LANUS    
 Domisili: Kota Mataram    
