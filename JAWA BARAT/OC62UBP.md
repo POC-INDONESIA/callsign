@@ -1,4 +1,4 @@
 # OC62UBP
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/e/c/fecbd0171203f2a5c2c917d62b47fe05.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/7/a/87a8765fd0bd5beb064076bde00370e2.jpg)    
 Nama: Bambang Setianto     
 Domisili: Kabupaten Bekasi    

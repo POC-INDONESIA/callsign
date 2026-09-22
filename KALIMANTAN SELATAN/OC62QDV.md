@@ -1,4 +1,4 @@
 # OC62QDV
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/7/3/c73e594ec5a38acc28d440e10e0dc05f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/1/ca1e44989f7477be1bb008663700f214.jpg)    
 Nama: NASIB MUSFAR    
 Domisili: Kota Banjarbaru    

@@ -1,4 +1,4 @@
 # OC62QLS
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/e/5/3e501877a08c532f85c84e8f64ddff2d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/6/1/f6165762b7ffe4fed1451ef17bb55e4d.jpg)    
 Nama: YOVAN HARYANA    
 Domisili: Kota Padang Panjang    
