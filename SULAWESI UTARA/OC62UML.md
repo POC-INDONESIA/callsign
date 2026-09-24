@@ -1,4 +1,4 @@
 # OC62UML
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/0/4/804cecf9f55e8ed5df8c5163672c7d7c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/b/3/6b305ae4e40ea7411acb37893b69c032.jpg)    
 Nama: ALTCE PALANDI    
 Domisili: Kabupaten Minahasa Utara    

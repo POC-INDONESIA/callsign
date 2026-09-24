@@ -1,4 +1,4 @@
 # OC62UHZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/d/9/6d91e6bf384e63e7139df36fa52d3ea2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/b/babf00160cc4732d6a1e8d178ac7122a.jpg)    
 Nama: MARDIJONO    
 Domisili: Kabupaten Rejang Lebong    
