@@ -1,4 +1,4 @@
 # OC62TDG
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/0/a/c0a89b96c3c5b44e8f179c039049a0de.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/6/e/a6ea93a5aefdbb04b40577ae2bcfb2bf.jpg)    
 Nama: Yan Haryanto    
-Domisili: KOTA TANGERANG    
+Domisili: Kota Tangerang    

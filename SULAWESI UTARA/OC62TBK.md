@@ -1,4 +1,4 @@
 # OC62TBK
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/4/c/44c06cf1442dca88eac27290b2441e5a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/3/d/f3dc0adb867711a84ec4d208292f4c7e.jpg)    
 Nama: ABDUL MALIK LAMANI    
-Domisili: KAB. MINAHASA    
+Domisili: Kabupaten Minahasa    
