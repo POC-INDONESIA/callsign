@@ -1,4 +1,4 @@
 # OC62ZKQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/8/5/785bdb246e2f2aba2bbeeb8a54f35aeb.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/1/b/b1b8ea7cab96d67f619dee63b7f8c0e6.jpg)    
 Nama: Sabar Maniran    
 Domisili: Kabupaten Maluku Tengah    

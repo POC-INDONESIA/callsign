@@ -1,4 +1,4 @@
 # OC62HEU
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/9/e/29ede3898b3643378f705e00bbdb025f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/0/9/409175483c7338d02fc2181b598ef19a.jpg)    
 Nama: Tri Purwanto    
 Domisili: Kota Bandung    

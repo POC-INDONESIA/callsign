@@ -1,4 +1,4 @@
 # OC62BEM
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/4/b/04b6c002cf9900e1a1135d53bb88eed0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/c/8/5c892be0503f4921c6a37347fcebc295.jpg)    
 Nama: I MADE SUBAWA    
 Domisili: Kabupaten Badung    
