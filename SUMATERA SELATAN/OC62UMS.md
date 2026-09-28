@@ -1,4 +1,4 @@
 # OC62UMS
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/5/7/f570e22836bdba041b3204bedb9a50c6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/8/e/88e712d05916893f35b696313afaa42f.jpg)    
 Nama: NOVA DESVITA    
 Domisili: Kabupaten Musi Banyuasin    

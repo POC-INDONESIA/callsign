@@ -1,4 +1,4 @@
 # OC62TGN
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/4/0/340921a0348c3cf14e61ffa9cc2f7eb4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/9/c/49cb50afac399e9c8ddcb127e1c4a34a.jpg)    
 Nama: EDUARD R.J.H LADO    
 Domisili: Kabupaten Minahasa    

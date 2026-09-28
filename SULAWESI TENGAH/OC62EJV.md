@@ -1,4 +1,4 @@
 # OC62EJV
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/5/0/150f110a5a5a75811816ab8afcafd928.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/d/d/bdde859af3ecd1743f5929c00792e099.jpg)    
 Nama: NAFIIS MUSAFIR    
 Domisili: Kabupaten Parigi Moutong    

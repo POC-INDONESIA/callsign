@@ -1,4 +1,4 @@
 # OC62RIO
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/8/c/78c83ca7cd9f70ae211c76ee8c9d65ba.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/6/9/e6933b696942ea499686134405f46cbc.jpg)    
 Nama: Muh. Nurham    
 Domisili: Kabupaten Parigi Moutong    

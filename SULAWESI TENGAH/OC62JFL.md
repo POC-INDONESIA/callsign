@@ -1,4 +1,4 @@
 # OC62JFL
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/1/a/01a411a317f1e7994ad7b8bc3db8b38d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/a/7/ea7628761dbab4196c0d6f82bd84aee9.jpg)    
 Nama: NATU RANDA    
 Domisili: Kota Palu    

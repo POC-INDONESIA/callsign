@@ -1,4 +1,4 @@
 # OC62SDF
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/2/b/62b0935a6b9c53b5df0980d7bb7ef602.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/d/a/5da2ebba8a967e2d84bd3d32158c0a90.jpg)    
 Nama: Salim Umar    
 Domisili: KAB. MALINAU    
