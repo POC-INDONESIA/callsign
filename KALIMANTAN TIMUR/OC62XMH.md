@@ -1,4 +1,4 @@
 # OC62XMH
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/9/a/19a6f3257e802d85955e729422b1e092.jpg)    
-Nama: Azar Alfitrah    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/5/d/05ddc65da1fbfa0426a3d0eb1a18d8fa.jpg)    
+Nama: Heri Irawan    
 Domisili: Kota Samarinda    
