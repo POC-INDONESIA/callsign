@@ -1,4 +1,4 @@
 # OC62ZKD
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/a/8/aa8d466562a14b61b370e263630073e5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/5/2/45218bff7595763fdfbdebd12dc12f81.jpg)    
 Nama: ERCI YULIN DIWONDA    
 Domisili: Kota Palu    
