@@ -1,4 +1,4 @@
 # OC62ALL
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/e/9/5e9e741839fa050fcbedc64480170ee6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/8/f/28fbfd4f82cf297af9fd31052d2ce64c.jpg)    
 Nama: NYINARDI TAJIR    
 Domisili: Kota Bandar Lampung    

@@ -1,4 +1,4 @@
 # OC62QHX
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/c/1/cc17afb1a3069f856ed88db6bcbcd093.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/2/1/72132ebae3c8443fd2c2bc2d9fdb250f.jpg)    
 Nama: Didik Hermawan    
 Domisili: Kabupaten Pasuruan    
