@@ -1,4 +1,4 @@
 # OC62MEO
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/f/2/af27910d2379e3fc4842048cc5b9a484.jpg)    
-Nama: Muhammad Zaidi    
-Domisili: KAB. BANJAR    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/7/a/27a9cb560ce684391e510102c74f7166.jpg)    
+Nama: YANTI    
+Domisili: Kabupaten Banjar    

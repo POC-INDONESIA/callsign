@@ -1,4 +1,4 @@
 # OC62VDB
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/f/0/4f06f485d10f93eb922c78098f7583b2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/1/e/51e9b91788a4da47480cf59c7e3f1af3.jpg)    
 Nama: Supriyanto Sudarto     
 Domisili: KAB. BANYUMAS    
