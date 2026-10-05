@@ -1,4 +1,4 @@
 # OC62PKR
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/5/3/f53af510ea2434f81d9372492ec1119d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/c/f/dcfbef1910b894c23b45a438b99fdb40.jpg)    
 Nama: YASNIMAR    
 Domisili: Kabupaten Agam    
