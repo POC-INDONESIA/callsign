@@ -1,4 +1,4 @@
 # OC62LPG
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/b/a/8bae4d5b21d3fdaa984f3a74be459f60.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/f/d/efd1991d262d2fdd46bf7a20d849201d.jpg)    
 Nama: Fakri Saputra    
 Domisili: Kota Banda Aceh    

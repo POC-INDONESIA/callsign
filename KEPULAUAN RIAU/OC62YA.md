@@ -1,4 +1,4 @@
 # OC62YA
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/5/e/f5eb54c0e730d66c6b28ab45b9845cbc.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/4/8/648ea8f5d6909fa105af9229025a751a.jpg)    
 Nama: SUYATI    
 Domisili: Kota Tanjung Pinang    
