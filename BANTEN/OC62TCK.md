@@ -1,4 +1,4 @@
 # OC62TCK
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/e/6/ce6d4299e9b882568a331581b71c1981.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/9/6/7965b94d0ad1b21b8bdc4d5b30fa6f56.jpg)    
 Nama: Sulistiyatno    
 Domisili: Kabupaten Tangerang    
