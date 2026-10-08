@@ -1,4 +1,4 @@
 # OC62ZDV
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/2/f/32f816be5527f36b31725166cad5644a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/3/6/436a6a0d3860623806ebc358ea14e035.jpg)    
 Nama: Sutikno    
 Domisili: Kabupaten Lampung Timur    
