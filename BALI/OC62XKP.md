@@ -1,4 +1,4 @@
 # OC62XKP
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/0/4/504bbb8cb8e1bfeb9e4e8e8a16ad238a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/4/d/34d067bc02637a56c8b44fe7cb94dece.jpg)    
 Nama: I GUSTI NGURAH HANURA    
 Domisili: Kabupaten Badung    
