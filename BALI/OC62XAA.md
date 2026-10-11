@@ -1,4 +1,4 @@
 # OC62XAA
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/8/9/e8993c3ae777065345427adf5a4eee4d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/b/9/db97d9523e5ee600fcd8dcb5d99bf330.jpg)    
 Nama: Dewa Agung Ayu Mas Setiawati, SE    
 Domisili: Kabupaten Tabanan    

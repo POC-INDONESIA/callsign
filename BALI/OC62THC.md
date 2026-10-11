@@ -1,4 +1,4 @@
 # OC62THC
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/3/9/b3996fd638b7474f15b3c80a7b9577f7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/5/7/757b285f397bf95aa4d8e06a6bf411c0.jpg)    
 Nama: AGUNG PUTU YULIANA    
 Domisili: Kabupaten Tabanan    
