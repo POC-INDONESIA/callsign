@@ -1,4 +1,4 @@
 # OC62YCR
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/d/d/cdd512d9b709f99bcf29a6a562138f22.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/e/f/aefd3fb1b1ca7a7119baa5bbbfcef2c8.jpg)    
 Nama: I MADE ARYAWAN    
-Domisili: KAB. BADUNG    
+Domisili: Kabupaten Badung    

@@ -1,4 +1,4 @@
 # OC62JNS
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/2/b/82b809a0f2b0b4b9d6be3bfc7438095e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/a/9/8a9d040b2b91f809e1174aff117f75fe.jpg)    
 Nama: Ramadhani    
 Domisili: Kabupaten Parigi Moutong    
