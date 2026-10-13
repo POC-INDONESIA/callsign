@@ -1,4 +1,4 @@
 # OC62LNZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/a/f/2af110f1c17a19e2f97bf670c13e0cf7.jpg)    
-Nama: I Made Sujana Putra    
-Domisili: Kabupaten Tabanan    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/8/f/88f352ff63765de04baa25fca58cfb1a.jpg)    
+Nama: I PUTU GUSDEDIK    
+Domisili: Kabupaten Badung    
