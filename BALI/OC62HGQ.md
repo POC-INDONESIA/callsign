@@ -1,4 +1,4 @@
 # OC62HGQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/7/6/776f5a2cdf87dfde86dd4b0ea8c5b197.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/6/7/7679bb94de598ce64a9c036d5555dd60.jpg)    
 Nama: Nyoman Oka Budi Aryasa Tanaya    
 Domisili: Kota Denpasar    
