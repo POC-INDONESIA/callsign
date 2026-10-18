@@ -1,3 +1,3 @@
 # OC62RDX
 Nama: JUMRANSYAH    
-Domisili: KAB. KUTAI KARTANEGARA    
+Domisili: Kabupaten Kutai Kartanegara    

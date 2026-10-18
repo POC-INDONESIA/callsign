@@ -1,4 +1,4 @@
 # OC62JBP
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/8/2/e8234e2d46acef9b35a8e9a422893b8b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/0/0/b003e17de4e0a3798904941b4a3dd860.jpg)    
 Nama: ANAK AGUNG MADE SUDJANA    
 Domisili:     

@@ -1,3 +1,3 @@
 # OC62EBN
 Nama: Sudarto    
-Domisili: KAB. KUTAI KARTANEGARA    
+Domisili: Kabupaten Kutai Kartanegara    

@@ -1,3 +1,3 @@
 # OC62EDH
 Nama: ANTOK PRIBADI    
-Domisili: KAB. KUTAI KARTANEGARA    
+Domisili: Kabupaten Kutai Kartanegara    

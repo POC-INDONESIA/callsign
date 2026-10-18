@@ -1,3 +1,3 @@
 # OC62EDM
 Nama: MOCHAMMAD THOIB    
-Domisili: KAB. KUTAI KARTANEGARA    
+Domisili: Kabupaten Kutai Kartanegara    

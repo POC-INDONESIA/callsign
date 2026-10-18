@@ -1,3 +1,3 @@
 # OC62GDH
 Nama: MOH. JAMIN    
-Domisili: KAB. KUTAI KARTANEGARA    
+Domisili: Kabupaten Kutai Kartanegara    
