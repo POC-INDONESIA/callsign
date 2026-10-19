@@ -1,4 +1,4 @@
 # OC62XDH
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/2/2/b227c9a39d30c6b6cd21b4499307bbb1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/0/a/20ade5036583a699b4f7181a6559d52b.jpg)    
 Nama: I Gusti Ngurah Gede     
 Domisili: KOTA DENPASAR    

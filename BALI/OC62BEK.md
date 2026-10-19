@@ -1,4 +1,4 @@
 # OC62BEK
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/4/7/647970d89e882c21b991fa29d9537414.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/6/9/e69fe0bb302095fa60c4af83e4e87f88.jpg)    
 Nama: HERIYANTO     
 Domisili: KOTA DENPASAR    

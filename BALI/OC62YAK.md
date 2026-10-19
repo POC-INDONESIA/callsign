@@ -1,4 +1,4 @@
 # OC62YAK
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/7/b/87b5772047f15c19eebbcea6e16dfff3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/d/6/1d653dcc3f94693304fc5b2867c893a6.jpg)    
 Nama: I DEWA MADE DWIPAYANA     
-Domisili: KAB. TABANAN    
+Domisili: Kabupaten Tabanan    

@@ -1,4 +1,4 @@
 # OC62CFT
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/3/a/73a960e5b80891650e9d8817fdc704a1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/3/c/d3cea948c2157679be8737b74e1312fa.jpg)    
 Nama: I Gede Budiasa    
 Domisili: KAB. TABANAN    

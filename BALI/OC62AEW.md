@@ -1,4 +1,4 @@
 # OC62AEW
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/e/c/fec212c16e1d7fe3220909ca9513789f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/6/e/f6e40dce99a1136ad135f9f7db697192.jpg)    
 Nama: Eka Damayanti    
-Domisili: KOTA DENPASAR    
+Domisili: Kota Denpasar    

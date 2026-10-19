@@ -1,4 +1,4 @@
 # OC62RIS
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/9/2/092a9b10141619982d72e44b262fa8f0.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/f/d/5fd951c3569a20f03a5e84bc30e0422f.jpg)    
 Nama: I Nyoman Risna,SE    
 Domisili: Kabupaten Badung    
