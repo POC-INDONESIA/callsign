@@ -1,4 +1,4 @@
 # OC62XJR
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/4/b/c4bce60e5974037a29cb2380fa7cf5fd.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/c/4/fc46bfe13d4c4f6b38ea8f92b69d132a.jpg)    
 Nama: Sriandi    
 Domisili: Kabupaten Bener Meriah    
