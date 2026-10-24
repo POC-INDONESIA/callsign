@@ -1,4 +1,4 @@
 # OC62TDC
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/9/0/c90f6c915c2cc6f68bef78b1dc8beeb4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/a/6/ea69e9b7d52d122fa3bdb24a53062807.jpg)    
 Nama: Munif Hidayat     
 Domisili: Kota Bandar Lampung    

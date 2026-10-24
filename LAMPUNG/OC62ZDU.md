@@ -1,4 +1,4 @@
 # OC62ZDU
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/f/6/af6ce65a89977665a191ef7b757016c9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/d/4/7d47930a265a2de34208e15ca24520cb.jpg)    
 Nama: Sumarno    
 Domisili: KAB. LAMPUNG TENGAH    
