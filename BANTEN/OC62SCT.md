@@ -1,4 +1,4 @@
 # OC62SCT
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/9/0/2909473d57bb1e561b779ef812d15634.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/a/f/6af04f426434a92c3d5240ae1c13f06a.jpg)    
 Nama: Achmad Syahroni    
 Domisili: Kabupaten Tangerang    

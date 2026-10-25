@@ -1,4 +1,4 @@
 # OC62YEP
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/2/3/a23b56d442eba1b45ad23e3a7fe0c8db.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/c/7/dc78baeb3b5aab8addddbd5f4b42e1fc.jpg)    
 Nama: Agung Saputro    
 Domisili: Kabupaten Tangerang    

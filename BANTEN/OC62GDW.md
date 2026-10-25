@@ -1,4 +1,4 @@
 # OC62GDW
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/a/f/0afa33b8062c1d7a0ef4b26b0bba3f4f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/e/6/5e6a4d09eabedc4df66825dfd6c6efb9.jpg)    
 Nama: Ribut Budiharjo     
 Domisili: Kabupaten Tangerang    

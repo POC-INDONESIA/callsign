@@ -1,4 +1,4 @@
 # OC62ARC
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/5/d/b5d47e389ca3b1631cb2a7d82962b89b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/f/9/df9e3bb17057362a09971e97b3ed9d4f.jpg)    
 Nama: Dony Chandra    
 Domisili: Kota Bekasi    
