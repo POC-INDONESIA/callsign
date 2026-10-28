@@ -1,4 +1,4 @@
 # OC62GPF
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/4/8/c482a70a13e30eb80b8549621ef7af19.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/b/a/bba324a5f70793804745042e4e0bf92b.jpg)    
 Nama: ELFIEN DIANA SANGER     
 Domisili: Kota Bitung    

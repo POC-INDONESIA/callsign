@@ -1,4 +1,4 @@
 # OC62WNF
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/d/6/7d628dae9ad7ddd4836b012e6c3213bf.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/e/0/7e06e1bd4fdb0a416158db74461ebddb.jpg)    
 Nama: I Putu Eka Suarsana    
 Domisili: Kabupaten Badung    
