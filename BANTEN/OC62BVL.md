@@ -1,4 +1,4 @@
 # OC62BVL
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/b/7/eb78a4e98d12d0f2932600b69cd4d50d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/4/4/244fa38eb615e99b0fe9aa902768f1c9.jpg)    
 Nama: Agus Hadiyanto    
 Domisili: Kota Tangerang    

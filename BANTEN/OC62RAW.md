@@ -1,4 +1,4 @@
 # OC62RAW
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/b/1/2b142eb85a6f5dcfe4f406103e9fb634.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/6/6/b6634564775782a4d98c967b39f3ded2.jpg)    
 Nama: Agustinus Deny Christanto    
 Domisili: Kabupaten Tangerang    

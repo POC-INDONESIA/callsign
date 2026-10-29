@@ -1,4 +1,4 @@
 # OC62MEL
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/f/9/df9840980d2651738e0c23b9300d3685.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/4/7/e47feb7c88b9d761ad562fe8b43cb66d.jpg)    
 Nama: Melfa Theresia S. Sianturi AMK    
-Domisili: Kota Samarinda    
+Domisili: Kota Bontang    

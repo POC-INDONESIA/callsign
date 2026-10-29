@@ -1,4 +1,4 @@
 # OC62VEM
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/5/2/a520494df07d4fd085720c891ef1ca9b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/6/e/36ed2d78fa113ce8efdb214b4cb65abc.jpg)    
 Nama: M Kholik Afendi    
 Domisili: Kabupaten Kediri    
