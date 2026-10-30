@@ -1,4 +1,4 @@
 # OC62JPL
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/3/a/a3ac1206d897638803800aecfbf966b4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/8/2/a8296c84ebbf1022ba44647aa3e7869e.jpg)    
 Nama: ys ngajuri    
 Domisili: Kabupaten Lampung Tengah    
