@@ -1,4 +1,4 @@
 # OC62NZK
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/5/5/155381ef970455e2b000e3e7be37a34b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/f/f/bffb12a12b53163c2daf52d3d0227203.jpg)    
 Nama: M HARYANTO    
 Domisili: Kabupaten Kepulauan Meranti    
