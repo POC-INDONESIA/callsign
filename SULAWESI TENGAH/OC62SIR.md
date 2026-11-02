@@ -1,4 +1,4 @@
 # OC62SIR
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/a/3/fa3a19e0c7d561e4197fb90e7e859081.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/5/4/154d526cec2e30ea23f8c3d2075d700d.jpg)    
 Nama: MOHAMMAD NASIR    
 Domisili: Kabupaten Toli-Toli    
