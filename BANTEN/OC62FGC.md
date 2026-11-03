@@ -1,4 +1,4 @@
 # OC62FGC
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/3/3/63300003a7ddbeca702ad56b6e63f6bd.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/2/3/4239eb836f82cf0cbe5a1e897f358caf.jpg)    
 Nama: Martin Gunawan    
 Domisili: Kabupaten Tangerang    
