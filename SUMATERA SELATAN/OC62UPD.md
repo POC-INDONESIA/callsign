@@ -1,4 +1,4 @@
 # OC62UPD
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/0/3/903f016ee35111312c3b7f896e3ca02a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/8/0/a807575ad382792c333b3787844b410c.jpg)    
 Nama: M. NURUDIN    
 Domisili: Kabupaten Ogan Komering Ulu Timu    
