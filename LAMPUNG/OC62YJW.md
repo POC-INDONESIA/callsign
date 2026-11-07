@@ -1,4 +1,4 @@
 # OC62YJW
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/2/682dac4aafb48ff4fcec9989eb8da376.jpg)    
-Nama: Zainudi    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/c/9/fc963b46240c86ada78306411eb4a480.jpg)    
+Nama: NCS DPD POC LAMPUNG    
 Domisili: Kabupaten Lampung Selatan    
