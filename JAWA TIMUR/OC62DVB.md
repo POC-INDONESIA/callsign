@@ -1,4 +1,4 @@
 # OC62DVB
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/f/7/9f79b54db22c8db2960f42f8b5a12c83.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/8/2/a829a3f1444f74a8084969848c87cd0a.jpg)    
 Nama: M Zainuri    
 Domisili: Kabupaten Sidoarjo    
