@@ -1,4 +1,4 @@
 # OC62LCM
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/5/7/e57d3ae902a0d5cbcc5be4cbe70898a9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/2/d/82d8a7d269c9764f579ea0745abe64f1.jpg)    
 Nama: I MADE SIDEN    
 Domisili: Kabupaten Parigi Moutong    

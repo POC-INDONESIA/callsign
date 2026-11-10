@@ -1,4 +1,4 @@
 # OC62IAE
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/9/b/09b746987f65e5513e6afdd13de43cb1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/9/0/89068013eaf8358c0f280bf87ee64671.jpg)    
 Nama: I Gede Artana    
 Domisili: Kota Balikpapan    
