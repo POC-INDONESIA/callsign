@@ -1,4 +1,4 @@
 # OC62GBV
 ![Foto](https://portal.pocindonesia.web.id//data/foto/d/9/a/d9a2d94e0fd676265d1f222c7b1aff26.jpg)    
 Nama: Sarno    
-Domisili: KOTA TANGERANG SELATAN    
+Domisili: Kota Tangerang Selatan    
