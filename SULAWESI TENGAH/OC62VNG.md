@@ -1,4 +1,4 @@
 # OC62VNG
-![Foto](https://portal.pocindonesia.web.id//data/foto/7/3/f/73fbb5ef7a9362e55288aae17bcf94b3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/7/d/87da12d91e67b8bf71a2787ee0d6dafc.jpg)    
 Nama: MUSLIMIN TUNRU    
 Domisili: Kabupaten Toli-Toli    
