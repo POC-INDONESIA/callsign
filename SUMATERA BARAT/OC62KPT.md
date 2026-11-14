@@ -1,4 +1,4 @@
 # OC62KPT
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/c/a/2cacec3d74fb6290b39f4bee74c6f368.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/2/c/e2c1da50479e9bcb94dcfe57a1891554.jpg)    
 Nama: ROZA PUTRI    
 Domisili: Kota Payakumbuh    
