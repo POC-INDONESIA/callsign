@@ -1,4 +1,4 @@
 # OC62EFZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/1/d/b1d5600addff9e71cfc4680e85ec7556.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/2/8/328d6ee026c2f3304a0f817c5476cec9.jpg)    
 Nama: ZAENAL ABIDIN SYHRIL    
-Domisili:     
+Domisili: Kota Sorong    

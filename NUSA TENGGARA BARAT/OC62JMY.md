@@ -1,4 +1,4 @@
 # OC62JMY
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/6/e/d6e0407b9e59a90ad13b07af799459a6.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/9/6/e96efb99838624ebfb3e7af3086cc032.jpg)    
 Nama: I PUTU JEIMI MARTHA    
 Domisili: Kota Mataram    

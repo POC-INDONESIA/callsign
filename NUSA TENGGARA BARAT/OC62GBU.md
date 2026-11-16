@@ -1,4 +1,4 @@
 # OC62GBU
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/6/c/a6c47cc6d3f30c54b8b6198e6cedb65d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/7/9/c79845f5361e4055323586525bb4db39.jpg)    
 Nama: I WAYAN TUSTHA    
 Domisili: Kota Mataram    
