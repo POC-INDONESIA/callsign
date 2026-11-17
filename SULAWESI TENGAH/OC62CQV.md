@@ -1,4 +1,4 @@
 # OC62CQV
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/c/e/ace30ebcfd044688b9ea15c064d5a2c9.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/2/2/a22ef1764284ac3113b41026c659afbd.jpg)    
 Nama: ROSMIATY SALAM    
 Domisili: Kabupaten Toli-Toli    

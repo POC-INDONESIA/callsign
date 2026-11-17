@@ -1,4 +1,4 @@
 # OC62CQS
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/5/f/45f2da409d493cb36a490b8488959e41.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/f/d/cfd1b59a5080af41e39f1e78cab5d8e6.jpg)    
 Nama: Juliana    
 Domisili: Kabupaten Toli-Toli    

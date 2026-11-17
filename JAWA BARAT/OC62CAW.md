@@ -1,4 +1,4 @@
 # OC62CAW
 ![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/8/2f8e9d7e5c9d5cae0c558cdc2b4eb274.jpg)    
 Nama: MUH WAHYU DIANA SAPUTRA    
-Domisili: KAB. BANDUNG    
+Domisili: Kabupaten Bandung    

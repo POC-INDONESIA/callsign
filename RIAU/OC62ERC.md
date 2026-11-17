@@ -1,4 +1,4 @@
 # OC62ERC
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/2/3/8239e6bae60edefba75f2138f1723964.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/a/a/2aa8d61748e0d592d5c1faffd0b60a55.jpg)    
 Nama: Eric Lesmana    
 Domisili: Kota Pekanbaru    

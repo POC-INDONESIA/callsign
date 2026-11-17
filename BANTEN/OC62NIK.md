@@ -1,4 +1,4 @@
 # OC62NIK
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/4/4/1445d0c80d1f34802a3c4cf79c5ec78c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/4/4/744b9eb1b7ddfce3eebf6fb491d133ca.jpg)    
 Nama: Niko Riyadi Lauw    
-Domisili: KOTA TANGERANG SELATAN    
+Domisili: Kota Tangerang Selatan    
