@@ -1,4 +1,4 @@
 # OC62LAM
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/7/f/47fda16fe29a754e9ed66f3eecb76e6d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/1/3/31370f61c319bf73806ff3da3c52b087.jpg)    
 Nama: ZAINAL    
 Domisili: Kota Balikpapan    

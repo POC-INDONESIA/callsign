@@ -1,4 +1,4 @@
 # OC62MEU
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/a/f/1afc81cc3a2d76a2c78f33bd7a2dce1a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/9/2/a92a0290765e4360ba398359252fc3c3.jpg)    
 Nama: Edison, ST    
 Domisili: Kabupaten Berau    

@@ -1,4 +1,4 @@
 # OC62TDZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/d/0/1d0826f764c3246da53b67fce7b40f1d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/7/b/17b58512aadfd1879bda333ed4b5c350.jpg)    
 Nama: Deni Saputra     
 Domisili: Kota Samarinda    

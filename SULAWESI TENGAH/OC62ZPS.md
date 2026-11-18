@@ -1,4 +1,4 @@
 # OC62ZPS
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/2/e/a2e58473f4e11d69b9ddeafd9812275d.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/d/3/7d3d91c6d5e02d261504da8ecb25a6b8.jpg)    
 Nama: DARWIN    
 Domisili: Kabupaten Toli-Toli    

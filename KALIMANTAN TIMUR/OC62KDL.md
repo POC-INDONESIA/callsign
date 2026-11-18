@@ -1,4 +1,4 @@
 # OC62KDL
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/3/3/c333c2022f9b299df4c006c87d54de97.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/f/0/bf0b1689065f69667c93249e00d9e7de.jpg)    
 Nama: LUKNAR HAMDANI    
 Domisili: Kabupaten Kutai Kartanegara    

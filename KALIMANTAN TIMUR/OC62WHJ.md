@@ -1,4 +1,4 @@
 # OC62WHJ
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/5/e/d5eb9f0e10ee89f025d62e0107987446.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/a/1/7a1c11cb30438b923d621f178fe2d28a.jpg)    
 Nama: MUHAMMAD ALIAS    
 Domisili: Kabupaten Berau    

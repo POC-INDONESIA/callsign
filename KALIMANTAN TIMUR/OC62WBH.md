@@ -1,4 +1,4 @@
 # OC62WBH
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/7/7/97706a2e38373506b9de95d91192f078.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/f/4/8/f48180585b66e41b909d5842d6510d21.jpg)    
 Nama: Agus Memed    
-Domisili: KAB. KUTAI TIMUR    
+Domisili: Kabupaten Kutai Timur    

@@ -1,4 +1,4 @@
 # OC62YJN
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/8/c/98ce230afb8ab2ede936e52741b6e6db.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/e/b/1eb723b24d8cb7c6294487f88dea0d2b.jpg)    
 Nama: EKO SUSANTO    
 Domisili: Kabupaten Kutai Timur    

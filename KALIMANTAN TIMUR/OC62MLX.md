@@ -1,4 +1,4 @@
 # OC62MLX
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/f/1/cf145777e6b46abb3d64430484233dac.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/9/b/e9bd52cce043a8e7b62cc3563292e960.jpg)    
 Nama: JUMARI    
 Domisili: Kabupaten Kutai Timur    

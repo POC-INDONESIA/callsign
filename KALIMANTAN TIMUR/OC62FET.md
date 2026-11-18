@@ -1,4 +1,4 @@
 # OC62FET
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/c/e/8ce1504fb0e18e3d4a71c1f8ff72ffa8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/1/4/5140e0c96360d08235859110aad4cf73.jpg)    
 Nama: ANDI ARIFAI    
 Domisili: Kabupaten Kutai Timur    

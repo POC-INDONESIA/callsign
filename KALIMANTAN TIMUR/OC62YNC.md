@@ -1,4 +1,4 @@
 # OC62YNC
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/6/5/a6532cd566445747e04cb0a057b312bf.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/3/8/d381ce15fbc9b66404ca3ab0b7bbd4be.jpg)    
 Nama: RAFIK    
 Domisili: Kabupaten Berau    

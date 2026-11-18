@@ -1,4 +1,4 @@
 # OC62BOS
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/2/4/5247b58c58cc8d156814e15e27cfe248.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/c/0/3c07f713f2685f56be13275854e2f1d7.jpg)    
 Nama: MUHAMMAD NASIR    
 Domisili: Kabupaten Kutai Timur    

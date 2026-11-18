@@ -1,4 +1,4 @@
 # OC62OJC
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/b/f/8bfb25592f69ceba494f1ea0ced6b6c3.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/9/2/a92ec2b05780a4ad5646920dcbb1dc09.jpg)    
 Nama: SABAR  SANTOSO    
 Domisili: Kota Bontang    

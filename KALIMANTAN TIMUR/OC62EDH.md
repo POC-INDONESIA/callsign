@@ -1,4 +1,4 @@
 # OC62EDH
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/1/a/81a7b9c639321e68b6ed0704ae59441c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/4/8/c48eba7ea5b09995b5afdd4821949195.jpg)    
 Nama: ANTOK PRIBADI    
 Domisili: Kabupaten Kutai Kartanegara    

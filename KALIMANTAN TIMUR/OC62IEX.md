@@ -1,4 +1,4 @@
 # OC62IEX
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/4/b/e4bfafc73b92a4fbb6b7719517f7e81e.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/c/0/4c039620c1aee1f065504ef216cd42c9.jpg)    
 Nama: ARFANDY    
 Domisili: Kabupaten Berau    

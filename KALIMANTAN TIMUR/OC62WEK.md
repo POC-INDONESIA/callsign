@@ -1,4 +1,4 @@
 # OC62WEK
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/e/b/1ebc33ab7fe04ac271d4902c6322cb2b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/0/680f14f8edf172dc3ec92565ae98bd4c.jpg)    
 Nama: URIP JUNAIDI    
 Domisili: Kabupaten Kutai Timur    

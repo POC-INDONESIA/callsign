@@ -1,4 +1,4 @@
 # OC62GCT
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/0/7/e07a49ad89d18c67acfebba7e3b8c858.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/6/b/6/6b6a88c719af475dd42b2adad6e4b083.jpg)    
 Nama: Zainal Arifin    
 Domisili: Kabupaten Paser    

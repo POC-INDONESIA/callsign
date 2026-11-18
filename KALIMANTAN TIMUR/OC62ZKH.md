@@ -1,4 +1,4 @@
 # OC62ZKH
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/e/a/1eabfe5212ab5fcb7c650f9a7a140668.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/6/2/1624a22c65602965d60453c6b0264c81.jpg)    
 Nama: Juni Yanto    
 Domisili: Kota Balikpapan    

@@ -1,4 +1,4 @@
 # OC62BFR
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/f/3/ef3f4f301e680176ff350e209f57f69b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/a/23a5dbe9898c49351bdea6cf1eba0cfd.jpg)    
 Nama: SUKARDI    
 Domisili: Kabupaten Kutai Timur    

@@ -1,4 +1,4 @@
 # OC62WSN
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/4/f/f4f285855bd5cdfa33118ce15cf09371.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/0/2/20242433380576febba0033c83d227c2.jpg)    
 Nama: SOFYAN AGUS    
 Domisili: Kota Samarinda    

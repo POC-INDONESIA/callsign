@@ -1,4 +1,4 @@
 # OC62BOB
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/9/0/890e30304a02ecb34396c28306ab96d7.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/7/a/a7a0029657592168ccfc88f1c6b673eb.jpg)    
 Nama: BOBMARIYANTO    
-Domisili: KAB. KUTAI TIMUR    
+Domisili: Kabupaten Kutai Timur    

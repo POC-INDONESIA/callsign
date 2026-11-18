@@ -1,4 +1,4 @@
 # OC62KPF
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/0/e/00e9b28cc246a6bafbed02853252b37c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/0/7/407777e5574a1017d1bb3909e8be7726.jpg)    
 Nama: Nansi    
 Domisili: Kota Samarinda    

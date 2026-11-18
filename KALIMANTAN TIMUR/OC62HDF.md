@@ -1,4 +1,4 @@
 # OC62HDF
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/d/1/1d12eebd3c1edabedde0996ed96f4b42.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/e/1/ee1e57b315dda471a154a020fa8b8423.jpg)    
 Nama: AAN YULIANTO    
 Domisili: KAB. KUTAI TIMUR    

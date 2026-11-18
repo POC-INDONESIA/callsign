@@ -1,4 +1,4 @@
 # OC62GWA
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/1/b713c2a46332cf9415c9dd40f4c211c1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/a/f/daf6fbeb00096575969db326783e9063.jpg)    
 Nama: GILANG WAHYU PERMADI    
 Domisili: Kota Samarinda    

@@ -1,4 +1,4 @@
 # OC62THQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/3/7/43745137e743f90ad049b8c9f1ede2b5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/a/9/0a94bbb16050db5f610fc22d46e1ff4d.jpg)    
 Nama: LILI YULIANTI    
 Domisili: Kota Samarinda    

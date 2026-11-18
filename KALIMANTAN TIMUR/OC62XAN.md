@@ -1,4 +1,4 @@
 # OC62XAN
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/d/7/0d78e73d0e1702a84a0bd6894241672f.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/9/d/e9d956526f5941e287e9610877a8eecb.jpg)    
 Nama: Eko Purwanto    
 Domisili: Kota Samarinda    

@@ -1,4 +1,4 @@
 # OC62YFQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/3/2/5/3256e9678c717dcf290f871e691751f8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/8/4/c84a5fb0a01b5cfb614e4a7045b081d5.jpg)    
 Nama: PETRUS MUJIYANA    
 Domisili: Kota Samarinda    

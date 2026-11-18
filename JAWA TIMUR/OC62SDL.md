@@ -1,4 +1,4 @@
 # OC62SDL
 ![Foto](https://portal.pocindonesia.web.id//data/foto/6/d/6/6d6ad1a70a90bf9bb09f80b3b449a020.jpg)    
 Nama: WINARNO    
-Domisili: KOTA SURABAYA    
+Domisili: Kota Surabaya    

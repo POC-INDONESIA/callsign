@@ -1,4 +1,4 @@
 # OC62GCY
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/e/2/be2917f90a218449c9075c5af90f7196.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/1/8/31879fb47d52e35f252799014d843f3c.jpg)    
 Nama: MANSUR    
 Domisili: Kabupaten Kutai Timur    
