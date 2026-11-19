@@ -1,4 +1,4 @@
 # OC62JGP
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/2/1/22165377eb233b917ab7bc451da36cdb.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/3/f/13f35e359690edc49977869d3a95ffbc.jpg)    
 Nama: SASTRA WIJAYA    
 Domisili: Kota Bukittinggi    

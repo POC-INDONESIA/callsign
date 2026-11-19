@@ -1,4 +1,4 @@
 # OC62KDV
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/e/b/4eb64b3a7092e339d2ffd3c017e6c422.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/b/a/8babf8b6954f2e030147ea51d8c3586d.jpg)    
 Nama: Akhmadal    
-Domisili: KOTA SAMARINDA    
+Domisili: Kota Samarinda    

@@ -1,4 +1,4 @@
 # OC62JMV
-![Foto](https://portal.pocindonesia.web.id//data/foto/0/1/1/01189d4af9aa2e1a45e096d7f0d10f8c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/9/b/d/9bd7e68da2bdb88e05e7626257447bb9.jpg)    
 Nama: SUMADI    
 Domisili: Kota Bontang    

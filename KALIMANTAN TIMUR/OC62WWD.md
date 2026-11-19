@@ -1,4 +1,4 @@
 # OC62WWD
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/e/0/4e0f93531dc641db843de0a81a1bfad8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/5/b/e5b7bd28eefd0e5107424077083efd51.jpg)    
 Nama: Darno    
 Domisili: Kota Samarinda    

@@ -1,4 +1,4 @@
 # OC62NON
-![Foto](https://portal.pocindonesia.web.id//data/foto/d/5/8/d5874826c238d40d61225a3a810e9109.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/7/3/573954904098e0f19b28e42e4841cd7a.jpg)    
 Nama: AGUSLIANI    
 Domisili: Kota Samarinda    

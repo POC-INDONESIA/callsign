@@ -1,4 +1,4 @@
 # OC62OEZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/e/6/5e6ea7353f1a1d73ebe6c7d4d11b3969.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/a/3/4/a34f8e732fdabacc2257be30b110fd65.jpg)    
 Nama: YHUDA PARAS SATRIA    
 Domisili: Kabupaten Kutai Kartanegara    

@@ -1,4 +1,4 @@
 # OC62GAS
-![Foto](https://portal.pocindonesia.web.id//data/foto/1/9/a/19a6f3257e802d85955e729422b1e092.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/d/2/cd287cf7ca5db650472e61dfb4710c4d.jpg)    
 Nama: Azar Alfitrah    
 Domisili: Kota Samarinda    

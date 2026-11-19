@@ -1,4 +1,4 @@
 # OC62LJX
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/4/5/5450e1593a20b9ce611f1c5f7e427ab8.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/3/c/03c7ca22c8de4c61c86a36c58f61c998.jpg)    
 Nama: Endang Sulistio    
 Domisili: Kota Samarinda    

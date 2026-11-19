@@ -1,4 +1,4 @@
 # OC62ACL
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/e/a/fea06308b9ea795a97e7c948371a36de.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/0/5/005a12f1805c645909a3ea1e164f87b8.jpg)    
 Nama: ERVAN SOFIAN    
-Domisili: KAB. KUTAI TIMUR    
+Domisili: Kabupaten Kutai Timur    

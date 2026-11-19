@@ -1,4 +1,4 @@
 # OC62YKG
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/1/4/c14b6574d85921a4657f46047f99b85b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/5/2/4/524e5060122e46d7d045ba15e301f8e9.jpg)    
 Nama: KRENSKY KAREL MOMONGAN    
 Domisili: Kabupaten Penajam Paser Utara    

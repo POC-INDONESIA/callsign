@@ -1,4 +1,4 @@
 # OC62YFT
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/8/2/f8247e3e7c2f9cae0b8044b89955ffef.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/9/0/c905d90144110db7f206d2d7337ea6b9.jpg)    
 Nama: YULIANTO    
 Domisili: Kota Samarinda    
