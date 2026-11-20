@@ -1,4 +1,4 @@
 # OC62VKC
-![Foto](https://portal.pocindonesia.web.id//data/foto/f/7/f/f7f9dddd488cd7887af378f8ec77fcc4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/8/7/d8740ae5962cae77a51bd961145fbd52.jpg)    
 Nama: BAMBANG SETYONO    
 Domisili: Kabupaten Kutai Timur    

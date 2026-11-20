@@ -1,4 +1,4 @@
 # OC62MCS
-![Foto](https://portal.pocindonesia.web.id//data/foto/a/b/4/ab4830cd41c8115a7a45af930baa7c14.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/2/0/d2082389b907c01f34d1267abc6e9528.jpg)    
 Nama: M. ARIEF AYUBA    
-Domisili: KAB. KUTAI TIMUR    
+Domisili: Kabupaten Kutai Timur    

@@ -1,4 +1,4 @@
 # OC62QHZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/3/2/4320381de950f91af84d140ae8d15e02.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/e/9/6/e9696d256d0a5a9b3d3afc87ae48c04f.jpg)    
 Nama: SLAMET    
 Domisili: Kabupaten Kutai Timur    

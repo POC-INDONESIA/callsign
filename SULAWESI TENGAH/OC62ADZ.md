@@ -1,4 +1,4 @@
 # OC62ADZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/4/c/44c4e09281caebb419ddf7f3a72c0d89.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/a/a/caabf9a6a2e440d52e1d21077bfe6f1b.jpg)    
 Nama: Agustan Andi Azis    
 Domisili: Kota Palu    

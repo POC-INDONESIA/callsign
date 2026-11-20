@@ -1,4 +1,4 @@
 # OC62GLC
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/a/2/6a26c39a28e6e5b0f8a70b553710426a.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/6/ba67f68600c3ca569f8ea48331b08a8d.jpg)    
 Nama: ROBY    
 Domisili: Kabupaten Kutai Timur    

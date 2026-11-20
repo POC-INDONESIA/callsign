@@ -1,4 +1,4 @@
 # OC62ZKX
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/c/1/4c151195add60d90ed6fffba20a0a606.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/7/8/d/78d4d7c664dad79abcefbfb096c1a691.jpg)    
 Nama: MAISYA RAHAYU    
 Domisili: Kabupaten Kutai Timur    

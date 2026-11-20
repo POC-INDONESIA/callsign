@@ -1,4 +1,4 @@
 # OC62QMZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/6/8/e/68ee859c2b56e6174a97304a30fe568c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/3/5/335d20d94713de00ac0a363287bc96c4.jpg)    
 Nama: SYAHRIL    
 Domisili: Kota Samarinda    

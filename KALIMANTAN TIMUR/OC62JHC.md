@@ -1,4 +1,4 @@
 # OC62JHC
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/2/8/92883d70c5ee81f52b5b998efe8772ea.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/b/7/cb7a34474a48d8b9cc8258656374742b.jpg)    
 Nama: Randy Mehandra    
 Domisili: Kota Samarinda    

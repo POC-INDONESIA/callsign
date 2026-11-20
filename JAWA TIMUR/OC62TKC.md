@@ -1,4 +1,4 @@
 # OC62TKC
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/f/c/2fcc26c04cd87d95ce797c34f01dd813.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/c/3/8c304746b743d7187ad119b5df3f8544.jpg)    
 Nama: ARIF TRI SUSILO    
 Domisili: Kabupaten Bojonegoro    

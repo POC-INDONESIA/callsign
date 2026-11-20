@@ -1,4 +1,4 @@
 # OC62QMW
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/1/1/5113d716e0c8f2896d7c8a699fcc7cb1.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/4/f/6/4f6d99cd04ae814f0d5a1e77bba6343e.jpg)    
 Nama: EKO BUDI MARTANTO    
 Domisili: Kota Samarinda    

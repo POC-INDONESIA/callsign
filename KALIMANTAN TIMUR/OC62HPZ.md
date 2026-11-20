@@ -1,4 +1,4 @@
 # OC62HPZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/8/9/b8954889e1d139728976ee4c0054da4b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/d/8/2/d82a208f256e4b53979c1bb39b08ca62.jpg)    
 Nama: MASRIANA    
 Domisili: Kabupaten Kutai Timur    

@@ -1,4 +1,4 @@
 # OC62CAT
-![Foto](https://portal.pocindonesia.web.id//data/foto/4/5/5/455d3ed84962d9f145daed7a091cf164.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/0/4/e/04eb9555b4ab6bc68d29568d72abe5ba.jpg)    
 Nama: SENDI AHMAD NOOR    
-Domisili: KOTA SAMARINDA    
+Domisili: Kota Samarinda    

@@ -1,4 +1,4 @@
 # OC62XMS
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/9/3/e93689c1245dcd5603ac6f4b7884df8c.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/0/8/8082dcd62e69f010d964734bff6f546b.jpg)    
 Nama: Muhammad Nur    
 Domisili: Kabupaten Kutai Kartanegara    

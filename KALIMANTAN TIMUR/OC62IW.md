@@ -1,4 +1,4 @@
 # OC62IW
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/7/6/8761e6afcc91ecda203098c76002e890.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/c/7/bc76f71047d7651889d0916a376ba571.jpg)    
 Nama: IMAM WAHYUDI    
 Domisili: Kabupaten Kutai Timur    
