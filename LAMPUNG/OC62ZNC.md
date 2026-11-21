@@ -1,4 +1,4 @@
 # OC62ZNC
-![Foto](https://portal.pocindonesia.web.id//data/foto/5/2/4/524502c8956c53befe5a0823af87dab5.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/1/ba15e89e18f94e0cb370be31e652356b.jpg)    
 Nama: Yusuf agus sudarmono    
 Domisili: Kabupaten Lampung Timur    
