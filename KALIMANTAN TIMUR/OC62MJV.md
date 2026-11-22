@@ -1,4 +1,4 @@
 # OC62MJV
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/7/0/970c817a1cf8b11b52ed102f070fc7d2.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/8/4/9/849c5e11f37256813ce28d7650513da9.jpg)    
 Nama: MURIANSYAH    
 Domisili: Kabupaten Kutai Timur    

@@ -1,4 +1,4 @@
 # OC62IRG
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/d/2/ed2f54f22d61e5d0b8f2dfd32fff54ab.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/2/3/1/2315cd18bfeee3a113af28e2efa3960a.jpg)    
 Nama: Iriyan Gunawan A. Md. Kep    
 Domisili: Kota Samarinda    

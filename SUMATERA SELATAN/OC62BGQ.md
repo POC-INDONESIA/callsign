@@ -1,4 +1,4 @@
 # OC62BGQ
-![Foto](https://portal.pocindonesia.web.id//data/foto/8/f/8/8f8d03bc2a076d201967555280f358b4.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/7/8/1787556da6f9c6b37fa6614019a5537e.jpg)    
 Nama: DWI KUSWORO,BA,S.Pd.I    
 Domisili: Kabupaten Muara Enim    
