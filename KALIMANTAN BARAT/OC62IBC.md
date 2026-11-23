@@ -1,4 +1,4 @@
 # OC62IBC
 ![Foto](https://portal.pocindonesia.web.id//data/foto/6/2/c/62c64f493b70faaeb2dc2f274b7bfb27.jpg)    
 Nama: YAKUP    
-Domisili:     
+Domisili: Kabupaten Kubu Raya    

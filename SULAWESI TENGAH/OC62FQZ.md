@@ -1,4 +1,4 @@
 # OC62FQZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/c/8/e/c8e87cb7530ec7e6b51c57fd8b7df123.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/b/7/9/b79605fbf27755efdc11d07df2424a02.jpg)    
 Nama: SYAMSUDDIN J    
 Domisili: Kabupaten Toli-Toli    

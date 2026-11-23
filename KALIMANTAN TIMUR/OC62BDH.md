@@ -1,4 +1,4 @@
 # OC62BDH
-![Foto](https://portal.pocindonesia.web.id//data/foto/2/c/b/2cb13203763b08a161d01d113fd43a5b.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/c/d/c/cdcbd15ce5eae2ffb4647d50e989597a.jpg)    
 Nama: SUYANTO     
-Domisili: KOTA SAMARINDA    
+Domisili: Kota Samarinda    
