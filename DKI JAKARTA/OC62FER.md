@@ -1,4 +1,4 @@
 # OC62FER
-![Foto](https://portal.pocindonesia.web.id//data/foto/9/4/b/94b379721e439a35e7d68b2cae90fa34.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/0/c/30cf2222e8f27910d43f83169ed8b78e.jpg)    
 Nama: Ferdian Wienathan    
 Domisili: Kota Administrasi Jakarta Barat    

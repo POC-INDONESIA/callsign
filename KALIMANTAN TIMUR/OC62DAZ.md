@@ -1,4 +1,4 @@
 # OC62DAZ
-![Foto](https://portal.pocindonesia.web.id//data/foto/b/a/7/ba71cb5f4f51df75639290d1a4e93550.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/1/9/3/19393e8046b4078199ab79353b7dacd8.jpg)    
 Nama: DEPPIT    
 Domisili: Kota Samarinda    

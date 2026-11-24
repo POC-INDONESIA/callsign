@@ -1,4 +1,4 @@
 # OC62KBE
-![Foto](https://portal.pocindonesia.web.id//data/foto/e/b/4/eb414dce7750f823a7eacca56bd94881.jpg)    
+![Foto](https://portal.pocindonesia.web.id//data/foto/3/e/a/3ea45477429ede8ef47b3b02fd615532.jpg)    
 Nama: PURYONO    
 Domisili: Kabupaten Banyuwangi    
